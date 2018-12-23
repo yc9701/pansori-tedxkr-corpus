@@ -48,7 +48,7 @@ The speech audio included in the corpus are 16 bit FLAC files with sampling rate
 | [Passion and challenge](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7Iug7LC97Jew/GFYqXg0CriE) | 신창연 | M | Busan | 2011 | 88 | 2:46 |
 | [Are science and liberal arts equal?](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/6rmA7IOB7Jqx/ccrZhrcWPLU) | 김상욱 | M | Busan | 2013 | 67 | 2:36 |
 | [Perspective, music and life](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/64uk7LWc6rCc/Jihv3iSi53Q) | 다이나믹듀오 | M | Seoul | 2012 | 48 | 2:51 |
-| []아이티 구호현장에서 발견한 음식의 가치](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/6rmA7J6s7ZWZ/rgUgvxlI_fk) | 김재학 | M | Seoul | 2010 | 8 | 0:25 |
+| [아이티 구호현장에서 발견한 음식의 가치](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/6rmA7J6s7ZWZ/rgUgvxlI_fk) | 김재학 | M | Seoul | 2010 | 8 | 0:25 |
 | [A spirit of sharing information and culture 'CC'](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7LWc7KeE6raM/afP1mVVJYgw) | 최진권 | M | Daejeon | 2010 | 18 | 1:42 |
 | [Gibbons, long-armed apes](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/6rmA7IKw7ZWY/Mwo47MAsMtE) | 김산하 | M | Seoul | 2010 | 73 | 2:22 |
 | [Never let go of your passion, just keep working on it](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/6rmA64yA7Iud/E9cVSPWR9Ck) | 김대식 | M | Daejeon | 2010 | 23 | 1:50 |
