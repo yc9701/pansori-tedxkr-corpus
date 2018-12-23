@@ -1,127 +1,127 @@
-6rmA7JiB7ZWY-zRvDWVfib2c-0001 오늘 제가 얘기 할 주제는요
-6rmA7JiB7ZWY-zRvDWVfib2c-0002 예술가가 되자 지금 당장 입니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0003 이런 얘기를 꺼내면 이제 보통 분들이 다 긴장하고
-6rmA7JiB7ZWY-zRvDWVfib2c-0004 약간 마음속에 저항을 하기 시작합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0008 예술은 무슨 예술이냐라는 생각이 드실 겁니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0009 지금 당장 우리가 예술가가 될 수 없는 이유는 수 백가지가 있습니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0010 머릿속에서 막 떠오르죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0015 왜 사람들은 예술이란 말을 들으면 벌써 이렇게 거부감이 들기 시작할까요
-6rmA7JiB7ZWY-zRvDWVfib2c-0016 어쩌면 예술이라는 것이 엄청난 재능을 타고났거나 아니면
-6rmA7JiB7ZWY-zRvDWVfib2c-0018 그런 일이라고 생각하는 거 아닐까
-6rmA7JiB7ZWY-zRvDWVfib2c-0020 이미 예술가의 길로부터 너무나 멀어진 게 아닐까 하는
-6rmA7JiB7ZWY-zRvDWVfib2c-0026 애들이 하고 있는 거의 모든 행위들이 예술입니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0028 텔레비젼에서 뭐 나오면 손담비 춤 따라하고
-6rmA7JiB7ZWY-zRvDWVfib2c-0031 모든 사람들을 괴롭게 합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0035 사실은 모두가 아이들을 좀 피곤해 합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0039 거짓말을 하기 시작합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0041 기억하고 있는 엄마들이 많아요
-6rmA7JiB7ZWY-zRvDWVfib2c-0043 얘가 드디어 본색이 드러났구나 지 아빠 닮아가지고
-6rmA7JiB7ZWY-zRvDWVfib2c-0046 아이들이 거짓말을 시작하는 순간은
-6rmA7JiB7ZWY-zRvDWVfib2c-0047 스토리텔링의 시작입니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0056 그러지 말고 이상적인 부모는 이런 부모입니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0057 그래 외계인 어떻게 생겼는데 외계인이 뭐라 그러디
-6rmA7JiB7ZWY-zRvDWVfib2c-0058 어디서 만났어 어 슈퍼 앞에서
-6rmA7JiB7ZWY-zRvDWVfib2c-0060 아이는 처음에 했던 말도 안되는 얘기를 책임지기 위해서
-6rmA7JiB7ZWY-zRvDWVfib2c-0063 스토리가 전개 되는 겁니다 이것은 물론 유치한 그런 스토리지만
-6rmA7JiB7ZWY-zRvDWVfib2c-0065 저같은 전문적인 작가의 일과 똑같은 일이에요 사실은
-6rmA7JiB7ZWY-zRvDWVfib2c-0069 한 문장과 다른 문장을 연결했을 뿐이다
-6rmA7JiB7ZWY-zRvDWVfib2c-0070 그 문장과 문장 사이에 에로스
-6rmA7JiB7ZWY-zRvDWVfib2c-0073 그 다음 그 문장을 위배하지 않는 범위 내에서
-6rmA7JiB7ZWY-zRvDWVfib2c-0077 네 어디 문장인지 아시겠죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0078 네 프란츠 카프카의 변신의 첫 문장인데
-6rmA7JiB7ZWY-zRvDWVfib2c-0080 이 문장을 감당하기 위해서 써내려간 게 사실은
-6rmA7JiB7ZWY-zRvDWVfib2c-0081 현대문학의 걸작인 프란츠 카프카의 변신입니다 별거 아니예요
-6rmA7JiB7ZWY-zRvDWVfib2c-0088 이것은 아이가 하는 것과 크게 다르지 않은 그런 일입니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0098 산을 만들고 뭐 이것저것 사람도 만들고 개도 만들고
-6rmA7JiB7ZWY-zRvDWVfib2c-0099 부모들은 말려요
-6rmA7JiB7ZWY-zRvDWVfib2c-0101 다시 말해서 무용하다는 것이죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0107 직장에서 상사가 시킨 것도 아니고
-6rmA7JiB7ZWY-zRvDWVfib2c-0108 누가 시킨 것도 없는데 합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0109 아마 여러분들도 어렸을 때
-6rmA7JiB7ZWY-zRvDWVfib2c-0110 원초적인 예술의 즐거움을 느껴본 순간이 분명히 있었을 거예요
-6rmA7JiB7ZWY-zRvDWVfib2c-0112 가장 행복했던 순간에 대해서 한번 써보라고 주면
-6rmA7JiB7ZWY-zRvDWVfib2c-0113 많은 학생들이 어렸을 때 경험한
-6rmA7JiB7ZWY-zRvDWVfib2c-0114 원초적인 예술적 경험에 대해서 얘길합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0121 일이 아니기 때문입니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0122 일은 행복하지 않죠 대부분은 힘듭니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0123 프랑스의 작가 미쉘 뜨루니에가 명언을 남겼는데요
-6rmA7JiB7ZWY-zRvDWVfib2c-0125 일은 인간의 본성에 맞지 않는다
-6rmA7JiB7ZWY-zRvDWVfib2c-0127 본성에 맞으면 왜 피곤해요
-6rmA7JiB7ZWY-zRvDWVfib2c-0131 왜 힘드니까 몸도 축나고요
-6rmA7JiB7ZWY-zRvDWVfib2c-0132 아이들은 대체로 자기 즐거움을 위해서 예술을 합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0136 물론 그런 아이가 없었던 것은 아닙니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0142 아이들은 학원을 가야 되고 학교를 가야 되고 숙제를 해야 되고
-6rmA7JiB7ZWY-zRvDWVfib2c-0144 더 이상 재미가 없습니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0145 해야 되고 경쟁이 개입하고 재미 없죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0147 엄마한테 대단히 크게 야단을 맞게 될 겁니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0148 꼭 그런 것 뿐 아니더라도
-6rmA7JiB7ZWY-zRvDWVfib2c-0153 중학교 2학년 때 학교에서 경복궁으로 사생 대회를 갔는데요
-6rmA7JiB7ZWY-zRvDWVfib2c-0156 열심히 그림을 그리고 있습니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0160 어두운 밤에 까마귀가 나무 위에 앉아 있다고
-6rmA7JiB7ZWY-zRvDWVfib2c-0163 스토리텔러로서의 재능이 있구나
-6rmA7JiB7ZWY-zRvDWVfib2c-0169 저를 끌고 나가셨어요
-6rmA7JiB7ZWY-zRvDWVfib2c-0170 거기 여중생들도 많이 와있었는데
-6rmA7JiB7ZWY-zRvDWVfib2c-0171 한마디로 개망신이었죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0174 이상적인 선생님이라면 제가 아까 첨에 말씀드린 것처럼 했겠죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0177 격려를 해줬을텐데 그런 선생님은 매우 드물죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0178 나중에 제가 이제 유럽의 현대 미술관에 철이 들어서
-6rmA7JiB7ZWY-zRvDWVfib2c-0180 억울하더라구요 이런 그림들이 걸려있어요  
-6rmA7JiB7ZWY-zRvDWVfib2c-0182 저는 왜 두들겨 맞고 그림을 입에 물고 경복궁 앞에 서 있어야 했는지
-6rmA7JiB7ZWY-zRvDWVfib2c-0188 어쨌거나 현대 미술이라는 것은 20세기 현대 미술은
-6rmA7JiB7ZWY-zRvDWVfib2c-0189 이상한 짓을 하나 해놓고 나서
-6rmA7JiB7ZWY-zRvDWVfib2c-0193 예를 들면 뭐 더 유명한 분을 보자면
-6rmA7JiB7ZWY-zRvDWVfib2c-0195 자전거 안장에다가 핸들을 붙여놓고
-6rmA7JiB7ZWY-zRvDWVfib2c-0201 피카소는 아예 말로도 남겼습니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0202 나는 내가 본 것을 그리는 것이 아니라 생각한 것을 그린다
-6rmA7JiB7ZWY-zRvDWVfib2c-0205 불행하게도 우리 안에 어린 예술가들은
-6rmA7JiB7ZWY-zRvDWVfib2c-0206 우리가 예술의 압제자들과 맞서 싸우기 전에
-6rmA7JiB7ZWY-zRvDWVfib2c-0207 이미 질식해서 죽어버립니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0208 이미 갇혀버려요
-6rmA7JiB7ZWY-zRvDWVfib2c-0211 어떤 일이 벌어지는가
-6rmA7JiB7ZWY-zRvDWVfib2c-0212 우리의 욕망이 사라지진 않아요
-6rmA7JiB7ZWY-zRvDWVfib2c-0221 또는 스토리텔링을 했으면 훨씬 즐거웠을 분들이
-6rmA7JiB7ZWY-zRvDWVfib2c-0223 음습한 방향으로 글쓰기가 나타나게 됩니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0224 가끔 그래서 애들 노는거 봐주시다가
-6rmA7JiB7ZWY-zRvDWVfib2c-0226 레고 블럭 뭐 프라 모델 이런거 하다가  
-6rmA7JiB7ZWY-zRvDWVfib2c-0231 부정적인 방향으로도 나타납니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0232 대체로 시기심으로 나타납니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0235 그러나 하지 못한 것들을 하는 사람들로 가득합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0236 노래하고 춤추고 연기하고 뿐만 아니라
-6rmA7JiB7ZWY-zRvDWVfib2c-0242 뭐 이런 얘기들을 이제 하게 됩니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0243 우리 마음 속에 시기심이란 것은 우리가 사악해서가 아니라
-6rmA7JiB7ZWY-zRvDWVfib2c-0244 우리 마음 속에 이런 어린 예술가들이 갇혀있기 때문에
-6rmA7JiB7ZWY-zRvDWVfib2c-0248 지금 당장 우리 자신의 예술을 시작하는 것이 필요합니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0250 인터넷 접속을 끄고 끊고
-6rmA7JiB7ZWY-zRvDWVfib2c-0251 일어나서 뭔가를 시작하면 됩니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0262 연극 시켜가지고 싫어하는 사람들 거의 못 봤어요
-6rmA7JiB7ZWY-zRvDWVfib2c-0267 글 쓰기 수업을 할 때 학생들한테 이렇게 과제를 내줍니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0268 이렇게 학생들이 모여있죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0270 미술하는 학생들 음악하는 학생들 많죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0274 어렸을 때 가장 불행했던 경험에 대해서 써라
-6rmA7JiB7ZWY-zRvDWVfib2c-0276 미친듯이
-6rmA7JiB7ZWY-zRvDWVfib2c-0279 처음에 한 5분 정도만 상을 가다듬고 써내려 가는 거예요
-6rmA7JiB7ZWY-zRvDWVfib2c-0280 제가 이렇게 미친듯이 글쓰기 수업을 시키는 이유는
-6rmA7JiB7ZWY-zRvDWVfib2c-0281 천천히 쓰면서 생각이 많아지면요
-6rmA7JiB7ZWY-zRvDWVfib2c-0282 우리 마음속에 예술가의 악마가 나타납니다
-6rmA7JiB7ZWY-zRvDWVfib2c-0286 이게 문장이냐 글씨를 봐라
-6rmA7JiB7ZWY-zRvDWVfib2c-0289 제가 한예종에서 봤던 정말 좋은 글들은
-6rmA7JiB7ZWY-zRvDWVfib2c-0290 시간을 충분히 준 과제에서 본 게 아니라
-6rmA7JiB7ZWY-zRvDWVfib2c-0295 그러나 그 순간에는 우리를 방해하는 악마가 나타나지 않죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0297 예술가가 될 수 없는 수백 가지의 이유가 아니라
-6rmA7JiB7ZWY-zRvDWVfib2c-0299 될 수 없는 이유는 중요하지 않아요
-6rmA7JiB7ZWY-zRvDWVfib2c-0303 대부분 부모님의 얼굴을 하고 있을 때가 많아요  
-6rmA7JiB7ZWY-zRvDWVfib2c-0304 그 다음에 배우자의 얼굴을 하고 있을 때도 있지만
-6rmA7JiB7ZWY-zRvDWVfib2c-0309 여러분의 예술가 행을 예술가가 되려는 걸 막고있는 사람들인데
-6rmA7JiB7ZWY-zRvDWVfib2c-0317 그런데 예술이라는 것은 뭘 해서 뭘 하려는게 아니죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0320 우리가 즐겁게 살 수 있도록 만들어주는 거예요
-6rmA7JiB7ZWY-zRvDWVfib2c-0322 자기 표현을 하도록 도와주는 것이죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0326 미안해 나만 재밌어서
-6rmA7JiB7ZWY-zRvDWVfib2c-0331 제가 뉴욕에 갔는데 택시를 탔어요
-6rmA7JiB7ZWY-zRvDWVfib2c-0335 자기 프로필이래요
-6rmA7JiB7ZWY-zRvDWVfib2c-0337 택시기사지만 연극을 해요
-6rmA7JiB7ZWY-zRvDWVfib2c-0341 내가 누구인지 말할 수 있는 자는 누구인가
-6rmA7JiB7ZWY-zRvDWVfib2c-0344 이 사람이 낮에는 골프 선수이면서 밤에는 작가이고
-6rmA7JiB7ZWY-zRvDWVfib2c-0352 기자들은 보통 이제 그런 질문들을 많이 하죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0355 한국의 무용학도들에게 한 말씀 해주시죠
-6rmA7JiB7ZWY-zRvDWVfib2c-0358 자 그랬더니 이분이 이렇게 말씀하셨어요
-6rmA7JiB7ZWY-zRvDWVfib2c-0359 JUST DO IT
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0001 오늘 제가 얘기 할 주제는요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0002 예술가가 되자 지금 당장 입니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0003 이런 얘기를 꺼내면 이제 보통 분들이 다 긴장하고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0004 약간 마음속에 저항을 하기 시작합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0008 예술은 무슨 예술이냐라는 생각이 드실 겁니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0009 지금 당장 우리가 예술가가 될 수 없는 이유는 수 백가지가 있습니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0010 머릿속에서 막 떠오르죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0015 왜 사람들은 예술이란 말을 들으면 벌써 이렇게 거부감이 들기 시작할까요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0016 어쩌면 예술이라는 것이 엄청난 재능을 타고났거나 아니면
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0018 그런 일이라고 생각하는 거 아닐까
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0020 이미 예술가의 길로부터 너무나 멀어진 게 아닐까 하는
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0026 애들이 하고 있는 거의 모든 행위들이 예술입니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0028 텔레비젼에서 뭐 나오면 손담비 춤 따라하고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0031 모든 사람들을 괴롭게 합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0035 사실은 모두가 아이들을 좀 피곤해 합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0039 거짓말을 하기 시작합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0041 기억하고 있는 엄마들이 많아요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0043 얘가 드디어 본색이 드러났구나 지 아빠 닮아가지고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0046 아이들이 거짓말을 시작하는 순간은
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0047 스토리텔링의 시작입니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0056 그러지 말고 이상적인 부모는 이런 부모입니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0057 그래 외계인 어떻게 생겼는데 외계인이 뭐라 그러디
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0058 어디서 만났어 어 슈퍼 앞에서
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0060 아이는 처음에 했던 말도 안되는 얘기를 책임지기 위해서
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0063 스토리가 전개 되는 겁니다 이것은 물론 유치한 그런 스토리지만
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0065 저같은 전문적인 작가의 일과 똑같은 일이에요 사실은
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0069 한 문장과 다른 문장을 연결했을 뿐이다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0070 그 문장과 문장 사이에 에로스
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0073 그 다음 그 문장을 위배하지 않는 범위 내에서
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0077 네 어디 문장인지 아시겠죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0078 네 프란츠 카프카의 변신의 첫 문장인데
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0080 이 문장을 감당하기 위해서 써내려간 게 사실은
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0081 현대문학의 걸작인 프란츠 카프카의 변신입니다 별거 아니예요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0088 이것은 아이가 하는 것과 크게 다르지 않은 그런 일입니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0098 산을 만들고 뭐 이것저것 사람도 만들고 개도 만들고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0099 부모들은 말려요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0101 다시 말해서 무용하다는 것이죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0107 직장에서 상사가 시킨 것도 아니고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0108 누가 시킨 것도 없는데 합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0109 아마 여러분들도 어렸을 때
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0110 원초적인 예술의 즐거움을 느껴본 순간이 분명히 있었을 거예요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0112 가장 행복했던 순간에 대해서 한번 써보라고 주면
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0113 많은 학생들이 어렸을 때 경험한
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0114 원초적인 예술적 경험에 대해서 얘길합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0121 일이 아니기 때문입니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0122 일은 행복하지 않죠 대부분은 힘듭니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0123 프랑스의 작가 미쉘 뜨루니에가 명언을 남겼는데요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0125 일은 인간의 본성에 맞지 않는다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0127 본성에 맞으면 왜 피곤해요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0131 왜 힘드니까 몸도 축나고요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0132 아이들은 대체로 자기 즐거움을 위해서 예술을 합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0136 물론 그런 아이가 없었던 것은 아닙니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0142 아이들은 학원을 가야 되고 학교를 가야 되고 숙제를 해야 되고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0144 더 이상 재미가 없습니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0145 해야 되고 경쟁이 개입하고 재미 없죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0147 엄마한테 대단히 크게 야단을 맞게 될 겁니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0148 꼭 그런 것 뿐 아니더라도
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0153 중학교 2학년 때 학교에서 경복궁으로 사생 대회를 갔는데요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0156 열심히 그림을 그리고 있습니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0160 어두운 밤에 까마귀가 나무 위에 앉아 있다고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0163 스토리텔러로서의 재능이 있구나
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0169 저를 끌고 나가셨어요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0170 거기 여중생들도 많이 와있었는데
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0171 한마디로 개망신이었죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0174 이상적인 선생님이라면 제가 아까 첨에 말씀드린 것처럼 했겠죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0177 격려를 해줬을텐데 그런 선생님은 매우 드물죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0178 나중에 제가 이제 유럽의 현대 미술관에 철이 들어서
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0180 억울하더라구요 이런 그림들이 걸려있어요  
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0182 저는 왜 두들겨 맞고 그림을 입에 물고 경복궁 앞에 서 있어야 했는지
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0188 어쨌거나 현대 미술이라는 것은 20세기 현대 미술은
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0189 이상한 짓을 하나 해놓고 나서
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0193 예를 들면 뭐 더 유명한 분을 보자면
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0195 자전거 안장에다가 핸들을 붙여놓고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0201 피카소는 아예 말로도 남겼습니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0202 나는 내가 본 것을 그리는 것이 아니라 생각한 것을 그린다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0205 불행하게도 우리 안에 어린 예술가들은
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0206 우리가 예술의 압제자들과 맞서 싸우기 전에
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0207 이미 질식해서 죽어버립니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0208 이미 갇혀버려요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0211 어떤 일이 벌어지는가
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0212 우리의 욕망이 사라지진 않아요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0221 또는 스토리텔링을 했으면 훨씬 즐거웠을 분들이
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0223 음습한 방향으로 글쓰기가 나타나게 됩니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0224 가끔 그래서 애들 노는거 봐주시다가
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0226 레고 블럭 뭐 프라 모델 이런거 하다가  
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0231 부정적인 방향으로도 나타납니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0232 대체로 시기심으로 나타납니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0235 그러나 하지 못한 것들을 하는 사람들로 가득합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0236 노래하고 춤추고 연기하고 뿐만 아니라
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0242 뭐 이런 얘기들을 이제 하게 됩니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0243 우리 마음 속에 시기심이란 것은 우리가 사악해서가 아니라
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0244 우리 마음 속에 이런 어린 예술가들이 갇혀있기 때문에
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0248 지금 당장 우리 자신의 예술을 시작하는 것이 필요합니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0250 인터넷 접속을 끄고 끊고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0251 일어나서 뭔가를 시작하면 됩니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0262 연극 시켜가지고 싫어하는 사람들 거의 못 봤어요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0267 글 쓰기 수업을 할 때 학생들한테 이렇게 과제를 내줍니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0268 이렇게 학생들이 모여있죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0270 미술하는 학생들 음악하는 학생들 많죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0274 어렸을 때 가장 불행했던 경험에 대해서 써라
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0276 미친듯이
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0279 처음에 한 5분 정도만 상을 가다듬고 써내려 가는 거예요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0280 제가 이렇게 미친듯이 글쓰기 수업을 시키는 이유는
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0281 천천히 쓰면서 생각이 많아지면요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0282 우리 마음속에 예술가의 악마가 나타납니다
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0286 이게 문장이냐 글씨를 봐라
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0289 제가 한예종에서 봤던 정말 좋은 글들은
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0290 시간을 충분히 준 과제에서 본 게 아니라
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0295 그러나 그 순간에는 우리를 방해하는 악마가 나타나지 않죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0297 예술가가 될 수 없는 수백 가지의 이유가 아니라
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0299 될 수 없는 이유는 중요하지 않아요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0303 대부분 부모님의 얼굴을 하고 있을 때가 많아요  
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0304 그 다음에 배우자의 얼굴을 하고 있을 때도 있지만
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0309 여러분의 예술가 행을 예술가가 되려는 걸 막고있는 사람들인데
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0317 그런데 예술이라는 것은 뭘 해서 뭘 하려는게 아니죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0320 우리가 즐겁게 살 수 있도록 만들어주는 거예요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0322 자기 표현을 하도록 도와주는 것이죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0326 미안해 나만 재밌어서
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0331 제가 뉴욕에 갔는데 택시를 탔어요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0335 자기 프로필이래요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0337 택시기사지만 연극을 해요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0341 내가 누구인지 말할 수 있는 자는 누구인가
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0344 이 사람이 낮에는 골프 선수이면서 밤에는 작가이고
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0352 기자들은 보통 이제 그런 질문들을 많이 하죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0355 한국의 무용학도들에게 한 말씀 해주시죠
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0358 자 그랬더니 이분이 이렇게 말씀하셨어요
+- 6rmA7JiB7ZWY-zRvDWVfib2c-0359 JUST DO IT

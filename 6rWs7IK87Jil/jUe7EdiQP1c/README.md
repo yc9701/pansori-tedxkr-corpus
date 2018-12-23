@@ -1,117 +1,117 @@
-6rWs7IK87Jil-jUe7EdiQP1c-0001 안녕하세요 반갑습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0003 저는 한국 항공우주연구원에서
-6rWs7IK87Jil-jUe7EdiQP1c-0004 항공기 설계 무인기 개발 관련 일을 하고 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0005 제 이름은 구삼옥입니다
-6rWs7IK87Jil-jUe7EdiQP1c-0008 영어 약자로 나와 있습니다 무인항공기입니다
-6rWs7IK87Jil-jUe7EdiQP1c-0010 과학기술이 발전하면서 사람이 하던 많은 일들이
-6rWs7IK87Jil-jUe7EdiQP1c-0012 그 트렌드의 끝에 항공기도 자동화 되어서
-6rWs7IK87Jil-jUe7EdiQP1c-0014 항공기가 나오는 시대가 되었습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0016 단순히 무인항공기 기술에서 그칠 것이 아니라
-6rWs7IK87Jil-jUe7EdiQP1c-0017 무인항공기에서
-6rWs7IK87Jil-jUe7EdiQP1c-0018 조종사가 타지 않고도 날아다닐 수 있는 기술을
-6rWs7IK87Jil-jUe7EdiQP1c-0019 사람이 타는 항공기에 활용을 해서
-6rWs7IK87Jil-jUe7EdiQP1c-0020 예를 들면 지금의 우리가 타고 다니는 자동차처럼
-6rWs7IK87Jil-jUe7EdiQP1c-0023 편하게 타고 다닐 수 있는
-6rWs7IK87Jil-jUe7EdiQP1c-0024 미래형 항공기로 가는 꿈을 같이 꾸어보고자 합니다
-6rWs7IK87Jil-jUe7EdiQP1c-0025 혹시 질문을 좀 드리겠습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0026 여기 계신 분들이 대부분 비행기를 많이 타보셨을 것 같고요
-6rWs7IK87Jil-jUe7EdiQP1c-0037 항공기가 여러분들이 평소에 잘 이용하시는 자가용 자동차처럼
-6rWs7IK87Jil-jUe7EdiQP1c-0038 그 정도의 가격에 그 정도의 운전 스킬 난이도 정도만 되면
-6rWs7IK87Jil-jUe7EdiQP1c-0042 지금 당장은 불가능한 꿈이지만
-6rWs7IK87Jil-jUe7EdiQP1c-0044 앞으로 가까운 장래에 언젠가는
-6rWs7IK87Jil-jUe7EdiQP1c-0050 저 숫자는 여객기 조종석에
-6rWs7IK87Jil-jUe7EdiQP1c-0052 제 2차 세계대전이 끝나면서
-6rWs7IK87Jil-jUe7EdiQP1c-0053 폭격기 수송기를 만들던 대형항공기 업체들이
-6rWs7IK87Jil-jUe7EdiQP1c-0055 대륙간 수송을 하기위한 여객기 수송기가 나왔습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0056 초창기에 나왔던 여객기에는
-6rWs7IK87Jil-jUe7EdiQP1c-0058 기장 부기장 기관사 항법사 통신사
-6rWs7IK87Jil-jUe7EdiQP1c-0064 70년대가 되면서 관성항법센서가 개발이 되고
-6rWs7IK87Jil-jUe7EdiQP1c-0065 장거리비행에 경험이 쌓이면서
-6rWs7IK87Jil-jUe7EdiQP1c-0066 남아있던 항법사가 퇴출되었습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0067 항법사는 장거리비행을 할 때
-6rWs7IK87Jil-jUe7EdiQP1c-0068 조종사가 미처 신경을 못 쓰는
-6rWs7IK87Jil-jUe7EdiQP1c-0070 그럼에도 불구하고 여전히 기관사는 남아있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0071 저기에 보이시는 저 수많은 계기판을
-6rWs7IK87Jil-jUe7EdiQP1c-0074 기관사는 옆으로 앉아서
-6rWs7IK87Jil-jUe7EdiQP1c-0077 그런데 자동화가 진행되면서
-6rWs7IK87Jil-jUe7EdiQP1c-0079 개인들이 휴대용 컴퓨터를 쓰던 80년대가 되면서
-6rWs7IK87Jil-jUe7EdiQP1c-0080 저 많은 계기판들이 다 컴퓨터 화면 속으로 들어갑니다
-6rWs7IK87Jil-jUe7EdiQP1c-0081 화면에서 보시면 굉장히 많던 아날로그 계기들이
-6rWs7IK87Jil-jUe7EdiQP1c-0083 심지어 사용자 매뉴얼까지도 컴퓨터 속으로 들어가기 시작했습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0085 보시는 그림처럼 기장 부기장 두 사람밖에 남아있지 않습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0086 앞으로 어떻게 될까요 둘 중에 누가 먼저 퇴출될까요
-6rWs7IK87Jil-jUe7EdiQP1c-0091 해외여행을 할 수 있을지도 모르겠습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0095 지금 그림에 보이는 작은 비행기가 98년도에 먼저 보여줬습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0096 뉴 펀들랜드에서 아일랜드까지
-6rWs7IK87Jil-jUe7EdiQP1c-0103 캘리포니아에서 호주에 있는 공군기지까지
-6rWs7IK87Jil-jUe7EdiQP1c-0104 스물두시간에 걸쳐 13000km를 넘게 비행을 하면서 기네스북에 오릅니다
-6rWs7IK87Jil-jUe7EdiQP1c-0105 장거리비행을 조종사가 타지 않고 비행한 기록입니다
-6rWs7IK87Jil-jUe7EdiQP1c-0106 이제 장거리비행을 하는 것은
-6rWs7IK87Jil-jUe7EdiQP1c-0111 그중에 대표적인 선수가 지금 보시는 그림에 나오는 프레데터입니다
-6rWs7IK87Jil-jUe7EdiQP1c-0114 지상관측용으로 아주 평화적인 용도로 시작했습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0123 초등학생들한테 이 영상을 보여주면
-6rWs7IK87Jil-jUe7EdiQP1c-0124 재미있는 영화보는 것처럼 굉장히 좋아합니다
-6rWs7IK87Jil-jUe7EdiQP1c-0131 그래서 공부 열심히 해야되는 거야 하고 마치는데요 
-6rWs7IK87Jil-jUe7EdiQP1c-0132 바로 그런 이유 때문에
-6rWs7IK87Jil-jUe7EdiQP1c-0133 우리나라에서 이렇게 무인항공기에 대해서 연구를 하고 있고
-6rWs7IK87Jil-jUe7EdiQP1c-0135 현재 군에서 열심히 관측 하늘에서 관측하는 연구를 하고 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0143 국산이구요 전자동으로 비행을 할 수 있는 능력을 가지고 있고
-6rWs7IK87Jil-jUe7EdiQP1c-0144 논의 좌표를 넣어주면 자동으로 스캔하면서 농약을 뿌립니다
-6rWs7IK87Jil-jUe7EdiQP1c-0148 연구기관이나 학교나 이런 데서
-6rWs7IK87Jil-jUe7EdiQP1c-0149 다양하게 여러가지 무인항공기관련 연구를 하고 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0152 그런 기술발전 추세에 뒤떨어지지 않기 위해서 열심히 연구를 하고 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0155 제가 지금 하고 있는 스마트 무인기 기술 개발 사업입니다
-6rWs7IK87Jil-jUe7EdiQP1c-0156 화면에 보시듯이 저런 비행체를 포함한
-6rWs7IK87Jil-jUe7EdiQP1c-0157 무인항공기시스템 기술을 개발을 하고 있는데
-6rWs7IK87Jil-jUe7EdiQP1c-0161 수직으로 이착륙을 할 수 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0163 원하는 속도가 완전히 붙으면 예를 들면
-6rWs7IK87Jil-jUe7EdiQP1c-0165 이런 상태가 되면 고정익 비행기가 됩니다
-6rWs7IK87Jil-jUe7EdiQP1c-0166 헬리콥터일 때는 회전날개가
-6rWs7IK87Jil-jUe7EdiQP1c-0168 고정익 항공기 모드가 되면 날개에서 양력을 만들고
-6rWs7IK87Jil-jUe7EdiQP1c-0169 프로펠러는 추진력만 만들어냅니다
-6rWs7IK87Jil-jUe7EdiQP1c-0171 이런 특징을 가지고 있는 항공기는
-6rWs7IK87Jil-jUe7EdiQP1c-0175 가장 중요한 것이 회전익 모드상태에서
-6rWs7IK87Jil-jUe7EdiQP1c-0178 달리면 되겠다 그렇게 생각할 수도 있겠는데
-6rWs7IK87Jil-jUe7EdiQP1c-0181 큰 회전날개가 두개달린 헬리콥터 방식으로 비행제어를 하구요
-6rWs7IK87Jil-jUe7EdiQP1c-0182 꺾어서 비행기 모드로 갔을 때는 고정익 비행기처럼
-6rWs7IK87Jil-jUe7EdiQP1c-0183 여러분들이 타시는 여객기처럼 고정익 비행기처럼 비행제어를 합니다
-6rWs7IK87Jil-jUe7EdiQP1c-0186 거기에 기술적인 핵심이 있는데
-6rWs7IK87Jil-jUe7EdiQP1c-0188 미국의 벨 헬리콥터밖에 그 기술을 가지고 있는 회사가 없습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0194 이 모델로 비행시험을 거쳐서
-6rWs7IK87Jil-jUe7EdiQP1c-0195 회전익 비행에서 고정익으로 가는 비밀을 풀었습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0201 저 과정에서 우여곡절이 많이 있었는데
-6rWs7IK87Jil-jUe7EdiQP1c-0203 헬리콥터상태로 다니다가 자동으로 착륙을 하고
-6rWs7IK87Jil-jUe7EdiQP1c-0205 조금 갔다가 예를 들면 80도까지 갔다가 돌아와서 앉고
-6rWs7IK87Jil-jUe7EdiQP1c-0210 45도 때 크게 흔들렸거든요
-6rWs7IK87Jil-jUe7EdiQP1c-0211 그랬다가 23도까지 갔으니까 다음목표 20도 하고 올렸습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0216 비행기를 만들어서 날리면
-6rWs7IK87Jil-jUe7EdiQP1c-0223 바로 이겁니다
-6rWs7IK87Jil-jUe7EdiQP1c-0238 지금 그림은 아까 말씀드린 현존 최고의 무인항공기 글로벌호크입니다
-6rWs7IK87Jil-jUe7EdiQP1c-0239 미국사람들도 예외는 아닌 것 같습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0242 자기 몸으로 직접 글라이더를 만들어서 날다가 떨어져서 돌아가셨는데
-6rWs7IK87Jil-jUe7EdiQP1c-0248 자동으로 비행을 할 수 있는 기술이 개발되고 있으면
-6rWs7IK87Jil-jUe7EdiQP1c-0249 이걸 이왕이면 사람이 타는 비행기에 적용을 하면
-6rWs7IK87Jil-jUe7EdiQP1c-0250 굉장히 전문적으로 훈련을 받은 조종사가 아닌
-6rWs7IK87Jil-jUe7EdiQP1c-0251 우리 여기 앉아계신 청중들같은 보통사람들도 앉아서
-6rWs7IK87Jil-jUe7EdiQP1c-0255 현재의 비행체에다가 저런 무인항공기를
-6rWs7IK87Jil-jUe7EdiQP1c-0259 이렇게 생각을 하는 것입니다
-6rWs7IK87Jil-jUe7EdiQP1c-0260 그런 아이디어의 한 연장선에서
-6rWs7IK87Jil-jUe7EdiQP1c-0263 비행장에 가서는 날개를 펼쳐서 비행기처럼 이착륙을 할 수 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0264 프로토타입은 시험비행을 끝냈구요
-6rWs7IK87Jil-jUe7EdiQP1c-0265 현재 주문을 받으면서 실용화모델을 개발하고 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0274 다시 자동차 모드로 전환해 할머니댁까지 주행합니다
-6rWs7IK87Jil-jUe7EdiQP1c-0275 굉장히 복잡한 대도시 도심지에
-6rWs7IK87Jil-jUe7EdiQP1c-0276 우리가 타고 다니는 자동차는 평지에서 2차원적으로 움직입니다
-6rWs7IK87Jil-jUe7EdiQP1c-0278 정지선이 있고 교통체증이 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0281 이런 하늘택시 하늘자동차가 나와 있습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0282 그래서 이런 아이디어처럼 좀 더 기술이 발전한다면
-6rWs7IK87Jil-jUe7EdiQP1c-0290 절대로 서로 충돌하는 일이 없도록
-6rWs7IK87Jil-jUe7EdiQP1c-0299 예를 들면 이런 영화에 나오는 사람처럼 난폭운전수가 나오면
-6rWs7IK87Jil-jUe7EdiQP1c-0301 저런 자동제어시스템까지 완벽하게 갖춰지면 대도시에서 가능하겠고
-6rWs7IK87Jil-jUe7EdiQP1c-0305 더 두말 할 필요가 없을 것 같습니다
-6rWs7IK87Jil-jUe7EdiQP1c-0306 이렇게 되고 나면 새로운 항공기가 나오면
-6rWs7IK87Jil-jUe7EdiQP1c-0307 제가 살고 있는 아파트 같으면 3000세대가 살고 있는데
-6rWs7IK87Jil-jUe7EdiQP1c-0308 아침 출근시간에 자동차가 3000대가 쏟아져 나와서
-6rWs7IK87Jil-jUe7EdiQP1c-0309 하늘로 날아오른다고 상상을 해보십시오
-6rWs7IK87Jil-jUe7EdiQP1c-0310 아마도 이런 모습이 되겠죠
-6rWs7IK87Jil-jUe7EdiQP1c-0314 언젠가는 가능할 것 같습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0001 안녕하세요 반갑습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0003 저는 한국 항공우주연구원에서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0004 항공기 설계 무인기 개발 관련 일을 하고 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0005 제 이름은 구삼옥입니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0008 영어 약자로 나와 있습니다 무인항공기입니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0010 과학기술이 발전하면서 사람이 하던 많은 일들이
+- 6rWs7IK87Jil-jUe7EdiQP1c-0012 그 트렌드의 끝에 항공기도 자동화 되어서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0014 항공기가 나오는 시대가 되었습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0016 단순히 무인항공기 기술에서 그칠 것이 아니라
+- 6rWs7IK87Jil-jUe7EdiQP1c-0017 무인항공기에서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0018 조종사가 타지 않고도 날아다닐 수 있는 기술을
+- 6rWs7IK87Jil-jUe7EdiQP1c-0019 사람이 타는 항공기에 활용을 해서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0020 예를 들면 지금의 우리가 타고 다니는 자동차처럼
+- 6rWs7IK87Jil-jUe7EdiQP1c-0023 편하게 타고 다닐 수 있는
+- 6rWs7IK87Jil-jUe7EdiQP1c-0024 미래형 항공기로 가는 꿈을 같이 꾸어보고자 합니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0025 혹시 질문을 좀 드리겠습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0026 여기 계신 분들이 대부분 비행기를 많이 타보셨을 것 같고요
+- 6rWs7IK87Jil-jUe7EdiQP1c-0037 항공기가 여러분들이 평소에 잘 이용하시는 자가용 자동차처럼
+- 6rWs7IK87Jil-jUe7EdiQP1c-0038 그 정도의 가격에 그 정도의 운전 스킬 난이도 정도만 되면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0042 지금 당장은 불가능한 꿈이지만
+- 6rWs7IK87Jil-jUe7EdiQP1c-0044 앞으로 가까운 장래에 언젠가는
+- 6rWs7IK87Jil-jUe7EdiQP1c-0050 저 숫자는 여객기 조종석에
+- 6rWs7IK87Jil-jUe7EdiQP1c-0052 제 2차 세계대전이 끝나면서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0053 폭격기 수송기를 만들던 대형항공기 업체들이
+- 6rWs7IK87Jil-jUe7EdiQP1c-0055 대륙간 수송을 하기위한 여객기 수송기가 나왔습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0056 초창기에 나왔던 여객기에는
+- 6rWs7IK87Jil-jUe7EdiQP1c-0058 기장 부기장 기관사 항법사 통신사
+- 6rWs7IK87Jil-jUe7EdiQP1c-0064 70년대가 되면서 관성항법센서가 개발이 되고
+- 6rWs7IK87Jil-jUe7EdiQP1c-0065 장거리비행에 경험이 쌓이면서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0066 남아있던 항법사가 퇴출되었습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0067 항법사는 장거리비행을 할 때
+- 6rWs7IK87Jil-jUe7EdiQP1c-0068 조종사가 미처 신경을 못 쓰는
+- 6rWs7IK87Jil-jUe7EdiQP1c-0070 그럼에도 불구하고 여전히 기관사는 남아있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0071 저기에 보이시는 저 수많은 계기판을
+- 6rWs7IK87Jil-jUe7EdiQP1c-0074 기관사는 옆으로 앉아서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0077 그런데 자동화가 진행되면서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0079 개인들이 휴대용 컴퓨터를 쓰던 80년대가 되면서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0080 저 많은 계기판들이 다 컴퓨터 화면 속으로 들어갑니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0081 화면에서 보시면 굉장히 많던 아날로그 계기들이
+- 6rWs7IK87Jil-jUe7EdiQP1c-0083 심지어 사용자 매뉴얼까지도 컴퓨터 속으로 들어가기 시작했습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0085 보시는 그림처럼 기장 부기장 두 사람밖에 남아있지 않습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0086 앞으로 어떻게 될까요 둘 중에 누가 먼저 퇴출될까요
+- 6rWs7IK87Jil-jUe7EdiQP1c-0091 해외여행을 할 수 있을지도 모르겠습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0095 지금 그림에 보이는 작은 비행기가 98년도에 먼저 보여줬습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0096 뉴 펀들랜드에서 아일랜드까지
+- 6rWs7IK87Jil-jUe7EdiQP1c-0103 캘리포니아에서 호주에 있는 공군기지까지
+- 6rWs7IK87Jil-jUe7EdiQP1c-0104 스물두시간에 걸쳐 13000km를 넘게 비행을 하면서 기네스북에 오릅니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0105 장거리비행을 조종사가 타지 않고 비행한 기록입니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0106 이제 장거리비행을 하는 것은
+- 6rWs7IK87Jil-jUe7EdiQP1c-0111 그중에 대표적인 선수가 지금 보시는 그림에 나오는 프레데터입니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0114 지상관측용으로 아주 평화적인 용도로 시작했습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0123 초등학생들한테 이 영상을 보여주면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0124 재미있는 영화보는 것처럼 굉장히 좋아합니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0131 그래서 공부 열심히 해야되는 거야 하고 마치는데요 
+- 6rWs7IK87Jil-jUe7EdiQP1c-0132 바로 그런 이유 때문에
+- 6rWs7IK87Jil-jUe7EdiQP1c-0133 우리나라에서 이렇게 무인항공기에 대해서 연구를 하고 있고
+- 6rWs7IK87Jil-jUe7EdiQP1c-0135 현재 군에서 열심히 관측 하늘에서 관측하는 연구를 하고 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0143 국산이구요 전자동으로 비행을 할 수 있는 능력을 가지고 있고
+- 6rWs7IK87Jil-jUe7EdiQP1c-0144 논의 좌표를 넣어주면 자동으로 스캔하면서 농약을 뿌립니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0148 연구기관이나 학교나 이런 데서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0149 다양하게 여러가지 무인항공기관련 연구를 하고 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0152 그런 기술발전 추세에 뒤떨어지지 않기 위해서 열심히 연구를 하고 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0155 제가 지금 하고 있는 스마트 무인기 기술 개발 사업입니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0156 화면에 보시듯이 저런 비행체를 포함한
+- 6rWs7IK87Jil-jUe7EdiQP1c-0157 무인항공기시스템 기술을 개발을 하고 있는데
+- 6rWs7IK87Jil-jUe7EdiQP1c-0161 수직으로 이착륙을 할 수 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0163 원하는 속도가 완전히 붙으면 예를 들면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0165 이런 상태가 되면 고정익 비행기가 됩니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0166 헬리콥터일 때는 회전날개가
+- 6rWs7IK87Jil-jUe7EdiQP1c-0168 고정익 항공기 모드가 되면 날개에서 양력을 만들고
+- 6rWs7IK87Jil-jUe7EdiQP1c-0169 프로펠러는 추진력만 만들어냅니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0171 이런 특징을 가지고 있는 항공기는
+- 6rWs7IK87Jil-jUe7EdiQP1c-0175 가장 중요한 것이 회전익 모드상태에서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0178 달리면 되겠다 그렇게 생각할 수도 있겠는데
+- 6rWs7IK87Jil-jUe7EdiQP1c-0181 큰 회전날개가 두개달린 헬리콥터 방식으로 비행제어를 하구요
+- 6rWs7IK87Jil-jUe7EdiQP1c-0182 꺾어서 비행기 모드로 갔을 때는 고정익 비행기처럼
+- 6rWs7IK87Jil-jUe7EdiQP1c-0183 여러분들이 타시는 여객기처럼 고정익 비행기처럼 비행제어를 합니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0186 거기에 기술적인 핵심이 있는데
+- 6rWs7IK87Jil-jUe7EdiQP1c-0188 미국의 벨 헬리콥터밖에 그 기술을 가지고 있는 회사가 없습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0194 이 모델로 비행시험을 거쳐서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0195 회전익 비행에서 고정익으로 가는 비밀을 풀었습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0201 저 과정에서 우여곡절이 많이 있었는데
+- 6rWs7IK87Jil-jUe7EdiQP1c-0203 헬리콥터상태로 다니다가 자동으로 착륙을 하고
+- 6rWs7IK87Jil-jUe7EdiQP1c-0205 조금 갔다가 예를 들면 80도까지 갔다가 돌아와서 앉고
+- 6rWs7IK87Jil-jUe7EdiQP1c-0210 45도 때 크게 흔들렸거든요
+- 6rWs7IK87Jil-jUe7EdiQP1c-0211 그랬다가 23도까지 갔으니까 다음목표 20도 하고 올렸습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0216 비행기를 만들어서 날리면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0223 바로 이겁니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0238 지금 그림은 아까 말씀드린 현존 최고의 무인항공기 글로벌호크입니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0239 미국사람들도 예외는 아닌 것 같습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0242 자기 몸으로 직접 글라이더를 만들어서 날다가 떨어져서 돌아가셨는데
+- 6rWs7IK87Jil-jUe7EdiQP1c-0248 자동으로 비행을 할 수 있는 기술이 개발되고 있으면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0249 이걸 이왕이면 사람이 타는 비행기에 적용을 하면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0250 굉장히 전문적으로 훈련을 받은 조종사가 아닌
+- 6rWs7IK87Jil-jUe7EdiQP1c-0251 우리 여기 앉아계신 청중들같은 보통사람들도 앉아서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0255 현재의 비행체에다가 저런 무인항공기를
+- 6rWs7IK87Jil-jUe7EdiQP1c-0259 이렇게 생각을 하는 것입니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0260 그런 아이디어의 한 연장선에서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0263 비행장에 가서는 날개를 펼쳐서 비행기처럼 이착륙을 할 수 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0264 프로토타입은 시험비행을 끝냈구요
+- 6rWs7IK87Jil-jUe7EdiQP1c-0265 현재 주문을 받으면서 실용화모델을 개발하고 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0274 다시 자동차 모드로 전환해 할머니댁까지 주행합니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0275 굉장히 복잡한 대도시 도심지에
+- 6rWs7IK87Jil-jUe7EdiQP1c-0276 우리가 타고 다니는 자동차는 평지에서 2차원적으로 움직입니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0278 정지선이 있고 교통체증이 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0281 이런 하늘택시 하늘자동차가 나와 있습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0282 그래서 이런 아이디어처럼 좀 더 기술이 발전한다면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0290 절대로 서로 충돌하는 일이 없도록
+- 6rWs7IK87Jil-jUe7EdiQP1c-0299 예를 들면 이런 영화에 나오는 사람처럼 난폭운전수가 나오면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0301 저런 자동제어시스템까지 완벽하게 갖춰지면 대도시에서 가능하겠고
+- 6rWs7IK87Jil-jUe7EdiQP1c-0305 더 두말 할 필요가 없을 것 같습니다
+- 6rWs7IK87Jil-jUe7EdiQP1c-0306 이렇게 되고 나면 새로운 항공기가 나오면
+- 6rWs7IK87Jil-jUe7EdiQP1c-0307 제가 살고 있는 아파트 같으면 3000세대가 살고 있는데
+- 6rWs7IK87Jil-jUe7EdiQP1c-0308 아침 출근시간에 자동차가 3000대가 쏟아져 나와서
+- 6rWs7IK87Jil-jUe7EdiQP1c-0309 하늘로 날아오른다고 상상을 해보십시오
+- 6rWs7IK87Jil-jUe7EdiQP1c-0310 아마도 이런 모습이 되겠죠
+- 6rWs7IK87Jil-jUe7EdiQP1c-0314 언젠가는 가능할 것 같습니다

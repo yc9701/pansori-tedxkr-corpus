@@ -1,48 +1,48 @@
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0001 사교육 걱정없는 세상이 올까요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0024 그러니까 제가 토요일 일요일까지도
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0029 공통점이 하나 있었습니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0031 다시 공부를 했습니다 전문가분들을 찾아가서 물어 봤습니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0035 학원은 초등학교 1학년부터 가르칠 수 있지만
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0049 그래서 저는 그 책을 사서 나눠 주기 시작합니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0066 가겠다 했습니다 그랬더니 또 연락이 왔습니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0100 우리 학교수업이 이제 정상으로 돌아갈겁니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0110 더 이상 우리 아이들은 수업시간에 선생님 저 그거 배웠어요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0111 제 배웠으니까 넘어가지요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0120 제가 상담을 하거나 만나는 어른들 마다 부모님들마다 이런 질문을 합니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0132 100분의 25
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0136 25문제로 나눴으니까 어떻게 되죠
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0137 한문제당 4점이었죠
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0145 나누기를 적용시키지 못합니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0153 그날 배운 것을 책을 보고 그날 설명 할 수 있었어요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0156 그날 배운 걸 설명 할수 있을까요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0159 그 강의를 강의한 내용 보시고 설명 한번 해 보십시오
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0163 설명할 수 있는 아이까지로 되게끔 책임을 져 줘야 됩니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0167 논다는게 매우 중요하다는 겁니다 짧게 놀아도 행복한 아이가 있습니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0172 어른도 마찬가지 아닙니까
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0183 네 시간표는요 계획표는요 다짐표로 바꿔야 됩니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0184 눈 뜨고 잠들때 까지요 그날 계획을 세워 보세요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0186 할려구요 빨리 끝내 놓고 마음껏 노세요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0189 아무리 멋있어 보여도 지킬 수 없으면 그건 고통이죠
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0197 멍 때려 보셨습니까 보셨죠
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0204 야 너 뭐하고 있어 지금 학원 갈 준비 했어 학교 숙제 다 했어
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0206 너 오늘 밥 먹었니
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0208 그런데 우리 아이가요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0212 멍때리는 자유가 있습니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0219 그래서 저는 꿈꿔 보는 거죠 이런 아이들의 경험이 저한테 온겁니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0227 친구와 싸웠다고 자살을 했어요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0229 이 성적 위주의 입시 위주의
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0231 그런 사회에서 벗어나는 세상이 바로 사교육 걱정 없는 세상입니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0235 자기가 책을 팔아 먹기 위해서
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0238 심지어 목숨까지 잃었다는 사실을 알고 있습니까
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0243 공부라는 건 언제든지 할 수 있잖아요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0245 우리가 가르쳐야 합니다 우리가 보여줘야 되는 거죠
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0252 너 니 주변에 누가 제일 행복해보여 라고 했을 때 우리 엄마 아빠요
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0256 엄마 아빠처럼 정말 놀러다니는 사람
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0257 엄마 아빠처럼 정말 즐거운 사람이 되고 싶어요 라고
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0258 말을 할 수 있는 세상이 왔으면 좋겠습니다
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0259 우리아이의 롤모델이 엄마 아빠여야 된다는 거죠
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0261 내 현실을 안타까워해야 하지 않겠습니까 우리가
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0263 그리고 입시 취업 결혼 출산 고통스러운 단어죠
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0264 입시가 뭐죠 내 꿈을 실현하기 위해서
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0271 그런데 지금의 현실은 어떻습니까 아이한명 키워서 졸업할 때 까지
-7Iug7ZiE7Iq5-YPdxHZmSU6M-0284 우리 미래를 밝게 하는거잖아요 같이 만들어 갔으면 좋겠습니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0001 사교육 걱정없는 세상이 올까요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0024 그러니까 제가 토요일 일요일까지도
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0029 공통점이 하나 있었습니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0031 다시 공부를 했습니다 전문가분들을 찾아가서 물어 봤습니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0035 학원은 초등학교 1학년부터 가르칠 수 있지만
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0049 그래서 저는 그 책을 사서 나눠 주기 시작합니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0066 가겠다 했습니다 그랬더니 또 연락이 왔습니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0100 우리 학교수업이 이제 정상으로 돌아갈겁니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0110 더 이상 우리 아이들은 수업시간에 선생님 저 그거 배웠어요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0111 제 배웠으니까 넘어가지요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0120 제가 상담을 하거나 만나는 어른들 마다 부모님들마다 이런 질문을 합니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0132 100분의 25
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0136 25문제로 나눴으니까 어떻게 되죠
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0137 한문제당 4점이었죠
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0145 나누기를 적용시키지 못합니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0153 그날 배운 것을 책을 보고 그날 설명 할 수 있었어요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0156 그날 배운 걸 설명 할수 있을까요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0159 그 강의를 강의한 내용 보시고 설명 한번 해 보십시오
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0163 설명할 수 있는 아이까지로 되게끔 책임을 져 줘야 됩니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0167 논다는게 매우 중요하다는 겁니다 짧게 놀아도 행복한 아이가 있습니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0172 어른도 마찬가지 아닙니까
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0183 네 시간표는요 계획표는요 다짐표로 바꿔야 됩니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0184 눈 뜨고 잠들때 까지요 그날 계획을 세워 보세요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0186 할려구요 빨리 끝내 놓고 마음껏 노세요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0189 아무리 멋있어 보여도 지킬 수 없으면 그건 고통이죠
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0197 멍 때려 보셨습니까 보셨죠
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0204 야 너 뭐하고 있어 지금 학원 갈 준비 했어 학교 숙제 다 했어
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0206 너 오늘 밥 먹었니
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0208 그런데 우리 아이가요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0212 멍때리는 자유가 있습니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0219 그래서 저는 꿈꿔 보는 거죠 이런 아이들의 경험이 저한테 온겁니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0227 친구와 싸웠다고 자살을 했어요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0229 이 성적 위주의 입시 위주의
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0231 그런 사회에서 벗어나는 세상이 바로 사교육 걱정 없는 세상입니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0235 자기가 책을 팔아 먹기 위해서
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0238 심지어 목숨까지 잃었다는 사실을 알고 있습니까
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0243 공부라는 건 언제든지 할 수 있잖아요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0245 우리가 가르쳐야 합니다 우리가 보여줘야 되는 거죠
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0252 너 니 주변에 누가 제일 행복해보여 라고 했을 때 우리 엄마 아빠요
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0256 엄마 아빠처럼 정말 놀러다니는 사람
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0257 엄마 아빠처럼 정말 즐거운 사람이 되고 싶어요 라고
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0258 말을 할 수 있는 세상이 왔으면 좋겠습니다
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0259 우리아이의 롤모델이 엄마 아빠여야 된다는 거죠
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0261 내 현실을 안타까워해야 하지 않겠습니까 우리가
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0263 그리고 입시 취업 결혼 출산 고통스러운 단어죠
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0264 입시가 뭐죠 내 꿈을 실현하기 위해서
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0271 그런데 지금의 현실은 어떻습니까 아이한명 키워서 졸업할 때 까지
+- 7Iug7ZiE7Iq5-YPdxHZmSU6M-0284 우리 미래를 밝게 하는거잖아요 같이 만들어 갔으면 좋겠습니다

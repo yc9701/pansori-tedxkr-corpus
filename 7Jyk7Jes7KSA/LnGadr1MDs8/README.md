@@ -1,43 +1,43 @@
-7Jyk7Jes7KSA-LnGadr1MDs8-0001 안녕하세요 윤여준입니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0002 영화 마이너리티 리포트는
-7Jyk7Jes7KSA-LnGadr1MDs8-0004 윤여준의 마이너리티 리포트는
-7Jyk7Jes7KSA-LnGadr1MDs8-0006 여러분들이 아마도 제일 싫어하시는
-7Jyk7Jes7KSA-LnGadr1MDs8-0007 정치 얘기라서 그렇습니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0012 38년 시간을 지내오는 동안에
-7Jyk7Jes7KSA-LnGadr1MDs8-0013 뭐 누구나 삶이 그렇겠지만
-7Jyk7Jes7KSA-LnGadr1MDs8-0015 그래도 어쨌든 희망의 끈을 놓지 않고
-7Jyk7Jes7KSA-LnGadr1MDs8-0021 정치란게 뭐냐
-7Jyk7Jes7KSA-LnGadr1MDs8-0027 국가 발전의 중심 역할을 하는 겁니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0039 개판에서 깡패정치를 한다 그러면
-7Jyk7Jes7KSA-LnGadr1MDs8-0042 여러가지 이유가 있습니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0058 이게 국가를 다스리는 지도자한테는
-7Jyk7Jes7KSA-LnGadr1MDs8-0062 서양의 알렉산더 대왕같은 그런 사람도
-7Jyk7Jes7KSA-LnGadr1MDs8-0063 아리스토텔레스한테 많이 배웠고
-7Jyk7Jes7KSA-LnGadr1MDs8-0066 선생을 붙여가지고 대궐에서요
-7Jyk7Jes7KSA-LnGadr1MDs8-0072 근데 왜 이게 중요하냐
-7Jyk7Jes7KSA-LnGadr1MDs8-0073 보통 다른 분야는
-7Jyk7Jes7KSA-LnGadr1MDs8-0074 다른 분야는 그냥 보편적인 리더십만 있으면 됩니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0093 지금 이명박 대통령은 멘토가 지금 방송통신위원장하는 최시중씨라고 했죠
-7Jyk7Jes7KSA-LnGadr1MDs8-0095 그 리더의 수준을 금방 알 수 있죠
-7Jyk7Jes7KSA-LnGadr1MDs8-0110 간단히 말씀드리겠습니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0112 박정희 대통령은 빛과 그림자가 분명한 사람이죠
-7Jyk7Jes7KSA-LnGadr1MDs8-0123 산업화에 매진했죠
-7Jyk7Jes7KSA-LnGadr1MDs8-0137 물리적 강제력만 가지고는 안됩니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0156 국민의 정부 김대중 대통령
-7Jyk7Jes7KSA-LnGadr1MDs8-0165 이건 큰 잘못입니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0166 왜 그러냐 하면 북한같은 호전적인 집단하고
-7Jyk7Jes7KSA-LnGadr1MDs8-0180 권력의 사유의식 때문에 뭐가 생겼습니까
-7Jyk7Jes7KSA-LnGadr1MDs8-0197 혐오하고 또 불신하고
-7Jyk7Jes7KSA-LnGadr1MDs8-0207 나이브한거죠
-7Jyk7Jes7KSA-LnGadr1MDs8-0222 제 상식으로는 제가 정부에서 일해봤던 사람으로서의 상식으로는
-7Jyk7Jes7KSA-LnGadr1MDs8-0228 기본의 기본이 안되어 있는
-7Jyk7Jes7KSA-LnGadr1MDs8-0229 그런 상태라고 해도 할 말이 없을겁니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0231 전문성이 있다고 생각해서 뽑아준 대통령 둘
-7Jyk7Jes7KSA-LnGadr1MDs8-0246 맡은 다음에 문제가 된 겁니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0247 그 다음에 권력이라는게 뭡니까
-7Jyk7Jes7KSA-LnGadr1MDs8-0301 아닙니다
-7Jyk7Jes7KSA-LnGadr1MDs8-0305 행위자는 싹 빼고 사람은 빼고요
-7Jyk7Jes7KSA-LnGadr1MDs8-0321 한국 정치권이라는게 아시다시피
-7Jyk7Jes7KSA-LnGadr1MDs8-0339 함부로 못하지요
-7Jyk7Jes7KSA-LnGadr1MDs8-0351 그렇지 않습니까
-7Jyk7Jes7KSA-LnGadr1MDs8-0371 후회하지 않는 그런 선택을 2012년에 하셔야 됩니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0001 안녕하세요 윤여준입니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0002 영화 마이너리티 리포트는
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0004 윤여준의 마이너리티 리포트는
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0006 여러분들이 아마도 제일 싫어하시는
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0007 정치 얘기라서 그렇습니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0012 38년 시간을 지내오는 동안에
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0013 뭐 누구나 삶이 그렇겠지만
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0015 그래도 어쨌든 희망의 끈을 놓지 않고
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0021 정치란게 뭐냐
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0027 국가 발전의 중심 역할을 하는 겁니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0039 개판에서 깡패정치를 한다 그러면
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0042 여러가지 이유가 있습니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0058 이게 국가를 다스리는 지도자한테는
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0062 서양의 알렉산더 대왕같은 그런 사람도
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0063 아리스토텔레스한테 많이 배웠고
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0066 선생을 붙여가지고 대궐에서요
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0072 근데 왜 이게 중요하냐
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0073 보통 다른 분야는
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0074 다른 분야는 그냥 보편적인 리더십만 있으면 됩니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0093 지금 이명박 대통령은 멘토가 지금 방송통신위원장하는 최시중씨라고 했죠
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0095 그 리더의 수준을 금방 알 수 있죠
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0110 간단히 말씀드리겠습니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0112 박정희 대통령은 빛과 그림자가 분명한 사람이죠
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0123 산업화에 매진했죠
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0137 물리적 강제력만 가지고는 안됩니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0156 국민의 정부 김대중 대통령
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0165 이건 큰 잘못입니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0166 왜 그러냐 하면 북한같은 호전적인 집단하고
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0180 권력의 사유의식 때문에 뭐가 생겼습니까
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0197 혐오하고 또 불신하고
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0207 나이브한거죠
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0222 제 상식으로는 제가 정부에서 일해봤던 사람으로서의 상식으로는
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0228 기본의 기본이 안되어 있는
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0229 그런 상태라고 해도 할 말이 없을겁니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0231 전문성이 있다고 생각해서 뽑아준 대통령 둘
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0246 맡은 다음에 문제가 된 겁니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0247 그 다음에 권력이라는게 뭡니까
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0301 아닙니다
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0305 행위자는 싹 빼고 사람은 빼고요
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0321 한국 정치권이라는게 아시다시피
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0339 함부로 못하지요
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0351 그렇지 않습니까
+- 7Jyk7Jes7KSA-LnGadr1MDs8-0371 후회하지 않는 그런 선택을 2012년에 하셔야 됩니다

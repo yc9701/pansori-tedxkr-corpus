@@ -1,92 +1,92 @@
-7J207ZiE7KCV-R15jiXaSYik-0000 저희집 책상사진이든요
-7J207ZiE7KCV-R15jiXaSYik-0003 테이블 위에 놓여있는 물건
-7J207ZiE7KCV-R15jiXaSYik-0004 좋아하는 음악리스트
-7J207ZiE7KCV-R15jiXaSYik-0006 그 사람을 파악할 수 있다 그래요
-7J207ZiE7KCV-R15jiXaSYik-0007 파악되시나요  
-7J207ZiE7KCV-R15jiXaSYik-0008 파악되셨어요
-7J207ZiE7KCV-R15jiXaSYik-0013 특히 저런 짜릿한 제목있죠
-7J207ZiE7KCV-R15jiXaSYik-0019 많으면 많을수록 좋은게 돈입니다
-7J207ZiE7KCV-R15jiXaSYik-0021 하기싫은거 안해도 되고
-7J207ZiE7KCV-R15jiXaSYik-0028 제가 처음에 동구에 갔을때는
-7J207ZiE7KCV-R15jiXaSYik-0031 부동산 개발하시는 분하고 같이 딱 갔는데
-7J207ZiE7KCV-R15jiXaSYik-0034 엄청나게 넓은 그런 곳이 있죠
-7J207ZiE7KCV-R15jiXaSYik-0035 거기를 다 뜯어내면
-7J207ZiE7KCV-R15jiXaSYik-0037 근데 보상범위가 너무 커요
-7J207ZiE7KCV-R15jiXaSYik-0038 그리고 부산에 그만한 수요도 없고
-7J207ZiE7KCV-R15jiXaSYik-0040 실제로 사업하기에는 좀 많이 떨어진다
-7J207ZiE7KCV-R15jiXaSYik-0045 아무도 안했죠
-7J207ZiE7KCV-R15jiXaSYik-0050 모르고 들어갔는데
-7J207ZiE7KCV-R15jiXaSYik-0054 설계도를 가지고 지은 건물이 아니라
-7J207ZiE7KCV-R15jiXaSYik-0055 막 그냥 막 지은 건물이거든요
-7J207ZiE7KCV-R15jiXaSYik-0057 아 여기 갤러리나
-7J207ZiE7KCV-R15jiXaSYik-0064 커뮤니티 비즈니스 사업이라는게 있는데
-7J207ZiE7KCV-R15jiXaSYik-0066 좋습니다
-7J207ZiE7KCV-R15jiXaSYik-0080 저희가 그 팀명이 전시공간 피플이었거든요
-7J207ZiE7KCV-R15jiXaSYik-0081 니들 피플
-7J207ZiE7KCV-R15jiXaSYik-0085 뭔가를 보여주자
-7J207ZiE7KCV-R15jiXaSYik-0087 여기 빈 건물인데요
-7J207ZiE7KCV-R15jiXaSYik-0088 겨울이었거든요
-7J207ZiE7KCV-R15jiXaSYik-0089 빈건물에 텐트를 치고
-7J207ZiE7KCV-R15jiXaSYik-0094 우리 막내가 그때 당시 기말고사였거든요
-7J207ZiE7KCV-R15jiXaSYik-0098 우리하고 4박 5일간
-7J207ZiE7KCV-R15jiXaSYik-0099 무전여행이라는 타이틀로 갔어요
-7J207ZiE7KCV-R15jiXaSYik-0101 먹을게 없다보니까
-7J207ZiE7KCV-R15jiXaSYik-0103 커피도 얻어마셨어요 근데
-7J207ZiE7KCV-R15jiXaSYik-0107 김치도 얻어 먹었는데
-7J207ZiE7KCV-R15jiXaSYik-0121 소금이 없어요
-7J207ZiE7KCV-R15jiXaSYik-0133 우리는 동구 지역을 활성화 하기 위해 온
-7J207ZiE7KCV-R15jiXaSYik-0141 아스팔트 바닥에 쇠파이프같은게
-7J207ZiE7KCV-R15jiXaSYik-0146 이쁘죠
-7J207ZiE7KCV-R15jiXaSYik-0148 정말 여기있는 분하고
-7J207ZiE7KCV-R15jiXaSYik-0149 여기 계시는 주민분들하고
-7J207ZiE7KCV-R15jiXaSYik-0151 진심으로 들기 시작한겁니다
-7J207ZiE7KCV-R15jiXaSYik-0157 보시면 69년부터
-7J207ZiE7KCV-R15jiXaSYik-0161 65세 인구는 점점 늘어나고 있는거 보이시죠
-7J207ZiE7KCV-R15jiXaSYik-0168 애들이 제대로 놀 놀이터도 없다고 하더라구요
-7J207ZiE7KCV-R15jiXaSYik-0172 나머지는 새로 다 생긴거예요
-7J207ZiE7KCV-R15jiXaSYik-0178 할매가 운영하는 레스토랑이거든요
-7J207ZiE7KCV-R15jiXaSYik-0186 그런 분위기가 좋잖아요
-7J207ZiE7KCV-R15jiXaSYik-0189 한 4개월 정도 지역조사를 했거든요
-7J207ZiE7KCV-R15jiXaSYik-0201 슈퍼를 하시는 분이었는데
-7J207ZiE7KCV-R15jiXaSYik-0203 이미 나눔을 실천하고 계셨던 분인데
-7J207ZiE7KCV-R15jiXaSYik-0211 이제 할매레스토랑도 육성하고
-7J207ZiE7KCV-R15jiXaSYik-0216 한식집을 운영하시는 요리사시거든요
-7J207ZiE7KCV-R15jiXaSYik-0217 요리사세요  
-7J207ZiE7KCV-R15jiXaSYik-0220 오픈 직전인데
-7J207ZiE7KCV-R15jiXaSYik-0234 참 뜨거운 호응을 해주셨습니다
-7J207ZiE7KCV-R15jiXaSYik-0236 멸치육수가 상당히 잘 빠졌더라구요
-7J207ZiE7KCV-R15jiXaSYik-0239 간이 좀 안맞았어요
-7J207ZiE7KCV-R15jiXaSYik-0242 도시락을 싸갈 수도 있는
-7J207ZiE7KCV-R15jiXaSYik-0246 준비가 안돼가지고
-7J207ZiE7KCV-R15jiXaSYik-0250 그래서 할매레스토랑을
-7J207ZiE7KCV-R15jiXaSYik-0253 외부에서 사람들이 들어와야 된다
-7J207ZiE7KCV-R15jiXaSYik-0254 그래서 여행코스하고 한번 묶어볼까
-7J207ZiE7KCV-R15jiXaSYik-0257 줄만 이렇게 그어져 있고
-7J207ZiE7KCV-R15jiXaSYik-0260 이거는 동구 구석구석 다니다가 골목골목 다니다가
-7J207ZiE7KCV-R15jiXaSYik-0263 그리든 동영상으로 찍든
-7J207ZiE7KCV-R15jiXaSYik-0264 일러스트를 하든 애니메이션을 하든
-7J207ZiE7KCV-R15jiXaSYik-0268 어딘지만 표시해달라
-7J207ZiE7KCV-R15jiXaSYik-0271 그래서 저작권도 이제
-7J207ZiE7KCV-R15jiXaSYik-0272 제출하신 분하고 공유하고
-7J207ZiE7KCV-R15jiXaSYik-0273 아이템으로 우리가 개발을 해서
-7J207ZiE7KCV-R15jiXaSYik-0275 라는 방식으로 진행이 됐습니다
-7J207ZiE7KCV-R15jiXaSYik-0276 아주 짧은 기간이었어요
-7J207ZiE7KCV-R15jiXaSYik-0284 아 정말 좀 절실하다라고 느꼈던게
-7J207ZiE7KCV-R15jiXaSYik-0285 이 사업자들간에 그리고 기관간에
-7J207ZiE7KCV-R15jiXaSYik-0286 소통이 너무 안되는거예요
-7J207ZiE7KCV-R15jiXaSYik-0287 굉장히 단절되어있어요
-7J207ZiE7KCV-R15jiXaSYik-0289 나누어서 더 커지는데
-7J207ZiE7KCV-R15jiXaSYik-0291 여기 부서가 하는걸 저기 부서가 뺏아가면
-7J207ZiE7KCV-R15jiXaSYik-0292 성과가 뺏기니까 안된다 이런식으로
-7J207ZiE7KCV-R15jiXaSYik-0298 시작한게 지구인닷컴이거든요
-7J207ZiE7KCV-R15jiXaSYik-0304 여기계시는 여러분들도
-7J207ZiE7KCV-R15jiXaSYik-0311 다 부셔서 새로 짓는 그런 지역
-7J207ZiE7KCV-R15jiXaSYik-0313 있는것을 가지고 최대한 활용하자
-7J207ZiE7KCV-R15jiXaSYik-0315 그런 재개발 대상지로 본거거든요
-7J207ZiE7KCV-R15jiXaSYik-0318 얼마전 모 방송에서
-7J207ZiE7KCV-R15jiXaSYik-0326 한번 여기 연사로 계시는
-7J207ZiE7KCV-R15jiXaSYik-0329 참 어려운 선택을 하셨습니다
-7J207ZiE7KCV-R15jiXaSYik-0333 근데 착한지구인으로 살기로 마음먹은 후부터
-7J207ZiE7KCV-R15jiXaSYik-0335 훨씬 더 삶의 가치를 더 느낀다고 해야될까요
-7J207ZiE7KCV-R15jiXaSYik-0336 지금이 이전보다
-7J207ZiE7KCV-R15jiXaSYik-0338 자신감은 높여줬습니다
+- 7J207ZiE7KCV-R15jiXaSYik-0000 저희집 책상사진이든요
+- 7J207ZiE7KCV-R15jiXaSYik-0003 테이블 위에 놓여있는 물건
+- 7J207ZiE7KCV-R15jiXaSYik-0004 좋아하는 음악리스트
+- 7J207ZiE7KCV-R15jiXaSYik-0006 그 사람을 파악할 수 있다 그래요
+- 7J207ZiE7KCV-R15jiXaSYik-0007 파악되시나요  
+- 7J207ZiE7KCV-R15jiXaSYik-0008 파악되셨어요
+- 7J207ZiE7KCV-R15jiXaSYik-0013 특히 저런 짜릿한 제목있죠
+- 7J207ZiE7KCV-R15jiXaSYik-0019 많으면 많을수록 좋은게 돈입니다
+- 7J207ZiE7KCV-R15jiXaSYik-0021 하기싫은거 안해도 되고
+- 7J207ZiE7KCV-R15jiXaSYik-0028 제가 처음에 동구에 갔을때는
+- 7J207ZiE7KCV-R15jiXaSYik-0031 부동산 개발하시는 분하고 같이 딱 갔는데
+- 7J207ZiE7KCV-R15jiXaSYik-0034 엄청나게 넓은 그런 곳이 있죠
+- 7J207ZiE7KCV-R15jiXaSYik-0035 거기를 다 뜯어내면
+- 7J207ZiE7KCV-R15jiXaSYik-0037 근데 보상범위가 너무 커요
+- 7J207ZiE7KCV-R15jiXaSYik-0038 그리고 부산에 그만한 수요도 없고
+- 7J207ZiE7KCV-R15jiXaSYik-0040 실제로 사업하기에는 좀 많이 떨어진다
+- 7J207ZiE7KCV-R15jiXaSYik-0045 아무도 안했죠
+- 7J207ZiE7KCV-R15jiXaSYik-0050 모르고 들어갔는데
+- 7J207ZiE7KCV-R15jiXaSYik-0054 설계도를 가지고 지은 건물이 아니라
+- 7J207ZiE7KCV-R15jiXaSYik-0055 막 그냥 막 지은 건물이거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0057 아 여기 갤러리나
+- 7J207ZiE7KCV-R15jiXaSYik-0064 커뮤니티 비즈니스 사업이라는게 있는데
+- 7J207ZiE7KCV-R15jiXaSYik-0066 좋습니다
+- 7J207ZiE7KCV-R15jiXaSYik-0080 저희가 그 팀명이 전시공간 피플이었거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0081 니들 피플
+- 7J207ZiE7KCV-R15jiXaSYik-0085 뭔가를 보여주자
+- 7J207ZiE7KCV-R15jiXaSYik-0087 여기 빈 건물인데요
+- 7J207ZiE7KCV-R15jiXaSYik-0088 겨울이었거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0089 빈건물에 텐트를 치고
+- 7J207ZiE7KCV-R15jiXaSYik-0094 우리 막내가 그때 당시 기말고사였거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0098 우리하고 4박 5일간
+- 7J207ZiE7KCV-R15jiXaSYik-0099 무전여행이라는 타이틀로 갔어요
+- 7J207ZiE7KCV-R15jiXaSYik-0101 먹을게 없다보니까
+- 7J207ZiE7KCV-R15jiXaSYik-0103 커피도 얻어마셨어요 근데
+- 7J207ZiE7KCV-R15jiXaSYik-0107 김치도 얻어 먹었는데
+- 7J207ZiE7KCV-R15jiXaSYik-0121 소금이 없어요
+- 7J207ZiE7KCV-R15jiXaSYik-0133 우리는 동구 지역을 활성화 하기 위해 온
+- 7J207ZiE7KCV-R15jiXaSYik-0141 아스팔트 바닥에 쇠파이프같은게
+- 7J207ZiE7KCV-R15jiXaSYik-0146 이쁘죠
+- 7J207ZiE7KCV-R15jiXaSYik-0148 정말 여기있는 분하고
+- 7J207ZiE7KCV-R15jiXaSYik-0149 여기 계시는 주민분들하고
+- 7J207ZiE7KCV-R15jiXaSYik-0151 진심으로 들기 시작한겁니다
+- 7J207ZiE7KCV-R15jiXaSYik-0157 보시면 69년부터
+- 7J207ZiE7KCV-R15jiXaSYik-0161 65세 인구는 점점 늘어나고 있는거 보이시죠
+- 7J207ZiE7KCV-R15jiXaSYik-0168 애들이 제대로 놀 놀이터도 없다고 하더라구요
+- 7J207ZiE7KCV-R15jiXaSYik-0172 나머지는 새로 다 생긴거예요
+- 7J207ZiE7KCV-R15jiXaSYik-0178 할매가 운영하는 레스토랑이거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0186 그런 분위기가 좋잖아요
+- 7J207ZiE7KCV-R15jiXaSYik-0189 한 4개월 정도 지역조사를 했거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0201 슈퍼를 하시는 분이었는데
+- 7J207ZiE7KCV-R15jiXaSYik-0203 이미 나눔을 실천하고 계셨던 분인데
+- 7J207ZiE7KCV-R15jiXaSYik-0211 이제 할매레스토랑도 육성하고
+- 7J207ZiE7KCV-R15jiXaSYik-0216 한식집을 운영하시는 요리사시거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0217 요리사세요  
+- 7J207ZiE7KCV-R15jiXaSYik-0220 오픈 직전인데
+- 7J207ZiE7KCV-R15jiXaSYik-0234 참 뜨거운 호응을 해주셨습니다
+- 7J207ZiE7KCV-R15jiXaSYik-0236 멸치육수가 상당히 잘 빠졌더라구요
+- 7J207ZiE7KCV-R15jiXaSYik-0239 간이 좀 안맞았어요
+- 7J207ZiE7KCV-R15jiXaSYik-0242 도시락을 싸갈 수도 있는
+- 7J207ZiE7KCV-R15jiXaSYik-0246 준비가 안돼가지고
+- 7J207ZiE7KCV-R15jiXaSYik-0250 그래서 할매레스토랑을
+- 7J207ZiE7KCV-R15jiXaSYik-0253 외부에서 사람들이 들어와야 된다
+- 7J207ZiE7KCV-R15jiXaSYik-0254 그래서 여행코스하고 한번 묶어볼까
+- 7J207ZiE7KCV-R15jiXaSYik-0257 줄만 이렇게 그어져 있고
+- 7J207ZiE7KCV-R15jiXaSYik-0260 이거는 동구 구석구석 다니다가 골목골목 다니다가
+- 7J207ZiE7KCV-R15jiXaSYik-0263 그리든 동영상으로 찍든
+- 7J207ZiE7KCV-R15jiXaSYik-0264 일러스트를 하든 애니메이션을 하든
+- 7J207ZiE7KCV-R15jiXaSYik-0268 어딘지만 표시해달라
+- 7J207ZiE7KCV-R15jiXaSYik-0271 그래서 저작권도 이제
+- 7J207ZiE7KCV-R15jiXaSYik-0272 제출하신 분하고 공유하고
+- 7J207ZiE7KCV-R15jiXaSYik-0273 아이템으로 우리가 개발을 해서
+- 7J207ZiE7KCV-R15jiXaSYik-0275 라는 방식으로 진행이 됐습니다
+- 7J207ZiE7KCV-R15jiXaSYik-0276 아주 짧은 기간이었어요
+- 7J207ZiE7KCV-R15jiXaSYik-0284 아 정말 좀 절실하다라고 느꼈던게
+- 7J207ZiE7KCV-R15jiXaSYik-0285 이 사업자들간에 그리고 기관간에
+- 7J207ZiE7KCV-R15jiXaSYik-0286 소통이 너무 안되는거예요
+- 7J207ZiE7KCV-R15jiXaSYik-0287 굉장히 단절되어있어요
+- 7J207ZiE7KCV-R15jiXaSYik-0289 나누어서 더 커지는데
+- 7J207ZiE7KCV-R15jiXaSYik-0291 여기 부서가 하는걸 저기 부서가 뺏아가면
+- 7J207ZiE7KCV-R15jiXaSYik-0292 성과가 뺏기니까 안된다 이런식으로
+- 7J207ZiE7KCV-R15jiXaSYik-0298 시작한게 지구인닷컴이거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0304 여기계시는 여러분들도
+- 7J207ZiE7KCV-R15jiXaSYik-0311 다 부셔서 새로 짓는 그런 지역
+- 7J207ZiE7KCV-R15jiXaSYik-0313 있는것을 가지고 최대한 활용하자
+- 7J207ZiE7KCV-R15jiXaSYik-0315 그런 재개발 대상지로 본거거든요
+- 7J207ZiE7KCV-R15jiXaSYik-0318 얼마전 모 방송에서
+- 7J207ZiE7KCV-R15jiXaSYik-0326 한번 여기 연사로 계시는
+- 7J207ZiE7KCV-R15jiXaSYik-0329 참 어려운 선택을 하셨습니다
+- 7J207ZiE7KCV-R15jiXaSYik-0333 근데 착한지구인으로 살기로 마음먹은 후부터
+- 7J207ZiE7KCV-R15jiXaSYik-0335 훨씬 더 삶의 가치를 더 느낀다고 해야될까요
+- 7J207ZiE7KCV-R15jiXaSYik-0336 지금이 이전보다
+- 7J207ZiE7KCV-R15jiXaSYik-0338 자신감은 높여줬습니다

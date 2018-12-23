@@ -1,36 +1,36 @@
-64uk7LWc6rCc-Jihv3iSi53Q-0000 안녕하세요
-64uk7LWc6rCc-Jihv3iSi53Q-0016 저희가 어떤 주제로 여러분께 이야기를 해드릴까 굉장히 고민을 하다가
-64uk7LWc6rCc-Jihv3iSi53Q-0020 그때 그때마다 서울에 관련된 노래들이 앨범마다 다 있고
-64uk7LWc6rCc-Jihv3iSi53Q-0028 굉장히 부정적인 시각으로 서울의 모습들 환경들 이런 것들을 바라봤더라고요
-64uk7LWc6rCc-Jihv3iSi53Q-0030 이후 활동에서는 서울에 대한 얘기가 그렇게 많지 않고요 그러다 보니까
-64uk7LWc6rCc-Jihv3iSi53Q-0032 생각 음악 그리고 삶인데요
-64uk7LWc6rCc-Jihv3iSi53Q-0044 그리고 해체 전까지의 이야기를 담아봤고요
-64uk7LWc6rCc-Jihv3iSi53Q-0045 그리고 두번째 챕터는 다이나믹 듀오 활동을 시작으로 입대 전까지
-64uk7LWc6rCc-Jihv3iSi53Q-0056 굉장히 유복하게 살았음에도 불구하고
-64uk7LWc6rCc-Jihv3iSi53Q-0066 그때 저희 마음가짐이 활동하던 사진에도 엄청 잘 나타나 있어요
-64uk7LWc6rCc-Jihv3iSi53Q-0070 밑의 사진 같은 경우에는 매체 특성에 관계 없이
-64uk7LWc6rCc-Jihv3iSi53Q-0071 저 매체는 주니어라는 초중생들을 타겟으로 한 잡지입니다  
-64uk7LWc6rCc-Jihv3iSi53Q-0072 근데 제 오른쪽 사진 같은 경우는 모자가 어머님들 하시는 파마캡이에요
-64uk7LWc6rCc-Jihv3iSi53Q-0075 인터뷰를 하곤 했습니다
-64uk7LWc6rCc-Jihv3iSi53Q-0079 어머님 팬티스타킹이었죠
-64uk7LWc6rCc-Jihv3iSi53Q-0087 변화를 원해 좀 더 진실한 인간이 되길 원해
-64uk7LWc6rCc-Jihv3iSi53Q-0088 되게 의미심장하잖아요
-64uk7LWc6rCc-Jihv3iSi53Q-0093 깨끗한 공기 대신 회색 먼지뿐야
-64uk7LWc6rCc-Jihv3iSi53Q-0098 이런 내용이 2001년도부터 2004년도까지 줄줄이 계속 나오는데
-64uk7LWc6rCc-Jihv3iSi53Q-0130 어린 나이에  
-64uk7LWc6rCc-Jihv3iSi53Q-0167 다시 한번 꺼내놓고 생각해보면 어떨까
-64uk7LWc6rCc-Jihv3iSi53Q-0172 결론은 제시하지 않더라도 해결책은 제시하지 않더라도
-64uk7LWc6rCc-Jihv3iSi53Q-0173 많은 분들에게 생각할 수 있는 여지를 좀 남겨놓자라는 생각을 많이 했던 것 같아요
-64uk7LWc6rCc-Jihv3iSi53Q-0174 그러다보니까 앨범 전반적으로 굉장히 이야기들이 많아요
-64uk7LWc6rCc-Jihv3iSi53Q-0177 저희 집 앞 공원에도 양복입으신 50대 신사분들이 되게 많이 있었었고
-64uk7LWc6rCc-Jihv3iSi53Q-0182 젊은 친구들의 지독한 고독 그리고 외로움들을 표현해 본 곡이고요
-64uk7LWc6rCc-Jihv3iSi53Q-0203 서른살에 저희가 동반 입대를 하게 됩니다
-64uk7LWc6rCc-Jihv3iSi53Q-0204 그래서 이루고 싶었던 꿈이라던지 음악이라던지
-64uk7LWc6rCc-Jihv3iSi53Q-0210 나이는 너무 많이 먹었고 좀 쉽지 않은 시절이었지만
-64uk7LWc6rCc-Jihv3iSi53Q-0211 그때 저희가 깨달은 게 뭐가 있냐면
-64uk7LWc6rCc-Jihv3iSi53Q-0212 아 이 전에는 외부에서 행복을 찾으려고 많이 노력을 했었는데
-64uk7LWc6rCc-Jihv3iSi53Q-0221 계급도 이병이네요
-64uk7LWc6rCc-Jihv3iSi53Q-0223 그렇게 행복한 군 생활을 마치고 저희가 2011년에
-64uk7LWc6rCc-Jihv3iSi53Q-0238 그리고 개코같은 경우에는
-64uk7LWc6rCc-Jihv3iSi53Q-0272 보셨나요
-64uk7LWc6rCc-Jihv3iSi53Q-0277 어떻게 보면 한 인간으로서 느낄 수 있는 공통 분모가 많기 때문에
+- 64uk7LWc6rCc-Jihv3iSi53Q-0000 안녕하세요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0016 저희가 어떤 주제로 여러분께 이야기를 해드릴까 굉장히 고민을 하다가
+- 64uk7LWc6rCc-Jihv3iSi53Q-0020 그때 그때마다 서울에 관련된 노래들이 앨범마다 다 있고
+- 64uk7LWc6rCc-Jihv3iSi53Q-0028 굉장히 부정적인 시각으로 서울의 모습들 환경들 이런 것들을 바라봤더라고요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0030 이후 활동에서는 서울에 대한 얘기가 그렇게 많지 않고요 그러다 보니까
+- 64uk7LWc6rCc-Jihv3iSi53Q-0032 생각 음악 그리고 삶인데요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0044 그리고 해체 전까지의 이야기를 담아봤고요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0045 그리고 두번째 챕터는 다이나믹 듀오 활동을 시작으로 입대 전까지
+- 64uk7LWc6rCc-Jihv3iSi53Q-0056 굉장히 유복하게 살았음에도 불구하고
+- 64uk7LWc6rCc-Jihv3iSi53Q-0066 그때 저희 마음가짐이 활동하던 사진에도 엄청 잘 나타나 있어요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0070 밑의 사진 같은 경우에는 매체 특성에 관계 없이
+- 64uk7LWc6rCc-Jihv3iSi53Q-0071 저 매체는 주니어라는 초중생들을 타겟으로 한 잡지입니다  
+- 64uk7LWc6rCc-Jihv3iSi53Q-0072 근데 제 오른쪽 사진 같은 경우는 모자가 어머님들 하시는 파마캡이에요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0075 인터뷰를 하곤 했습니다
+- 64uk7LWc6rCc-Jihv3iSi53Q-0079 어머님 팬티스타킹이었죠
+- 64uk7LWc6rCc-Jihv3iSi53Q-0087 변화를 원해 좀 더 진실한 인간이 되길 원해
+- 64uk7LWc6rCc-Jihv3iSi53Q-0088 되게 의미심장하잖아요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0093 깨끗한 공기 대신 회색 먼지뿐야
+- 64uk7LWc6rCc-Jihv3iSi53Q-0098 이런 내용이 2001년도부터 2004년도까지 줄줄이 계속 나오는데
+- 64uk7LWc6rCc-Jihv3iSi53Q-0130 어린 나이에  
+- 64uk7LWc6rCc-Jihv3iSi53Q-0167 다시 한번 꺼내놓고 생각해보면 어떨까
+- 64uk7LWc6rCc-Jihv3iSi53Q-0172 결론은 제시하지 않더라도 해결책은 제시하지 않더라도
+- 64uk7LWc6rCc-Jihv3iSi53Q-0173 많은 분들에게 생각할 수 있는 여지를 좀 남겨놓자라는 생각을 많이 했던 것 같아요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0174 그러다보니까 앨범 전반적으로 굉장히 이야기들이 많아요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0177 저희 집 앞 공원에도 양복입으신 50대 신사분들이 되게 많이 있었었고
+- 64uk7LWc6rCc-Jihv3iSi53Q-0182 젊은 친구들의 지독한 고독 그리고 외로움들을 표현해 본 곡이고요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0203 서른살에 저희가 동반 입대를 하게 됩니다
+- 64uk7LWc6rCc-Jihv3iSi53Q-0204 그래서 이루고 싶었던 꿈이라던지 음악이라던지
+- 64uk7LWc6rCc-Jihv3iSi53Q-0210 나이는 너무 많이 먹었고 좀 쉽지 않은 시절이었지만
+- 64uk7LWc6rCc-Jihv3iSi53Q-0211 그때 저희가 깨달은 게 뭐가 있냐면
+- 64uk7LWc6rCc-Jihv3iSi53Q-0212 아 이 전에는 외부에서 행복을 찾으려고 많이 노력을 했었는데
+- 64uk7LWc6rCc-Jihv3iSi53Q-0221 계급도 이병이네요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0223 그렇게 행복한 군 생활을 마치고 저희가 2011년에
+- 64uk7LWc6rCc-Jihv3iSi53Q-0238 그리고 개코같은 경우에는
+- 64uk7LWc6rCc-Jihv3iSi53Q-0272 보셨나요
+- 64uk7LWc6rCc-Jihv3iSi53Q-0277 어떻게 보면 한 인간으로서 느낄 수 있는 공통 분모가 많기 때문에
