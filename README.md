@@ -13,7 +13,7 @@ Extra care was taken to maintain the quality of the generated corpus:
 
 The speech audio included in the corpus are 16 bit FLAC files with sampling rate of 16 KHz. Furrther information on the included speech contents is summarized in the following table:
 
-| Title  | Speaker | Gender | Location | Year | # Fragments | Duration |
+| Title  | Speaker | Gender | Location | Year | Fragments | Duration |
 |---|:-:|:-:|:-:|:-:|--:|--:|
 | [Appropriate technology](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7J207ISx67KU/znxAJsY__HM) | 이성범 | M | Seoul | 2010 | 87 | 5:58 |
 | [Making a village worth living in](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/6rmA7Zic7KCV/grgRnDg-o94) | 김혜정 | F | Busan  | 2012 | 191 | 9:14 |
