@@ -1,0 +1,74 @@
+7KCc6rmA7KCV-un4qbATrmx8-0001 저희는 방금 소개받은 것 처럼 의사구요 여기가 저희 진료실입니다
+7KCc6rmA7KCV-un4qbATrmx8-0003 저는 이렇게 만화책을 보고 있었고
+7KCc6rmA7KCV-un4qbATrmx8-0025 전시를 하기도 합니다
+7KCc6rmA7KCV-un4qbATrmx8-0030 뭘 하고 있거든요 근데 이 뭘 하는게 저희가 노는 그런게 아니라
+7KCc6rmA7KCV-un4qbATrmx8-0031 진짜 뭔가 저희가 꿈꾸는 뭔가가 있기 때문에 하는건데
+7KCc6rmA7KCV-un4qbATrmx8-0032 그것이 바로 잘 등장하기 어려운 말입니다만
+7KCc6rmA7KCV-un4qbATrmx8-0033 아주 일반적으로도 이해할 수 있는 말인데요
+7KCc6rmA7KCV-un4qbATrmx8-0034 메디컬 디자인이라고 하는 영역을 만드는 겁니다
+7KCc6rmA7KCV-un4qbATrmx8-0038 아주 이런 간단한
+7KCc6rmA7KCV-un4qbATrmx8-0045 바로 일단 디자인은 광의로 해석을 합니다 그래서
+7KCc6rmA7KCV-un4qbATrmx8-0046 어떤 것을 새로 구성 하고자 하는 노력 이라고 디자인을 정의한 건데
+7KCc6rmA7KCV-un4qbATrmx8-0047 그 대상이 되는 것은 기구와 환경과 소통의 세가지 요소입니다
+7KCc6rmA7KCV-un4qbATrmx8-0048 그리고 뭔가를 재구성 하려면 목표가 있어야 되잖아요
+7KCc6rmA7KCV-un4qbATrmx8-0050 가장 인간적인 사용자 경험성을 만들어 낼 수 있는 의료를 만들자는 것입니다
+7KCc6rmA7KCV-un4qbATrmx8-0051 쉬우시죠
+7KCc6rmA7KCV-un4qbATrmx8-0053 네 저희가
+7KCc6rmA7KCV-un4qbATrmx8-0055 네 제가 3년 동안 양주시 보건소라는 곳에서 예방접종실 근무를 했는데
+7KCc6rmA7KCV-un4qbATrmx8-0069 이제 보여드리는 저희식의 모습입니다
+7KCc6rmA7KCV-un4qbATrmx8-0086 사실은 달라그러면 잘 줍니다 네
+7KCc6rmA7KCV-un4qbATrmx8-0087 빨리 내놔
+7KCc6rmA7KCV-un4qbATrmx8-0095 때도 많이 타고 지금은 약간 꼬질꼬질 해 졌는데요
+7KCc6rmA7KCV-un4qbATrmx8-0099 그래서 이건 저희 이제 12월 1일부터 전시할 작가분들이 만들어 주신건데
+7KCc6rmA7KCV-un4qbATrmx8-0106 떨고있는게 들켜버렸어요
+7KCc6rmA7KCV-un4qbATrmx8-0111 조금만 더 들고 있을까요
+7KCc6rmA7KCV-un4qbATrmx8-0118 아이가 입을 완전히 꽉 깨물고 있는데요
+7KCc6rmA7KCV-un4qbATrmx8-0126 결국 또 한 아이를 울리시고 말았어요
+7KCc6rmA7KCV-un4qbATrmx8-0145 이때 중요한거는 이런 식으로 엄마와 의사가 얘기할 수 있는 시간을
+7KCc6rmA7KCV-un4qbATrmx8-0147 예 제가 저거 만들 때 되게 힘들었어요
+7KCc6rmA7KCV-un4qbATrmx8-0148 사탕을 갈아가지구 녹여서 붙인게 저런 모습이었구요
+7KCc6rmA7KCV-un4qbATrmx8-0149 앞으로는 좀 더 안정적인 모습으로 만들 수 있을 겁니다
+7KCc6rmA7KCV-un4qbATrmx8-0151 이 정의가 좀 새롭게 와 닿으시는지 모르겠어요
+7KCc6rmA7KCV-un4qbATrmx8-0152 조금은 더 설명을 드려야 될 것 같아서
+7KCc6rmA7KCV-un4qbATrmx8-0153 지금 보여드린 도구 디자인 외에도
+7KCc6rmA7KCV-un4qbATrmx8-0155 처음으로 환경 디자인에 대해서 말씀을 드릴께요
+7KCc6rmA7KCV-un4qbATrmx8-0157 어 환경 디자인은 한마디로 말해서 저희 제너럴 닥터를 얘기 해야되는데요
+7KCc6rmA7KCV-un4qbATrmx8-0160 인지 라고 하는 것에 대해 관심이 있으신 분들은 아시겠지만
+7KCc6rmA7KCV-un4qbATrmx8-0162 어떤것을 종합적으로 이해하고 그것에 대해 반응하는 것을 말하는데
+7KCc6rmA7KCV-un4qbATrmx8-0163 그런 구조를 가지기 위해서는 몇가지 구성하는 것들이 있어요
+7KCc6rmA7KCV-un4qbATrmx8-0166 그리고 그 안에서 일어나는 행동들과 커뮤니케이션에 대해서 받아들였을 때
+7KCc6rmA7KCV-un4qbATrmx8-0168 인지를 하게 되는 거죠
+7KCc6rmA7KCV-un4qbATrmx8-0171 그리고 또 그 안을 구성하고 있는 의사와 간호사 그리고
+7KCc6rmA7KCV-un4qbATrmx8-0181 이런 것 들이 새롭게 구성이 되는 거죠
+7KCc6rmA7KCV-un4qbATrmx8-0185 근데 저희는 그걸 바꾸고자 하는 환경 디자인을 하는 거니까 그것을
+7KCc6rmA7KCV-un4qbATrmx8-0186 병원이지만 카페로밖에 인지할 수 밖에 없는 그런 환경을 만들어 놓고
+7KCc6rmA7KCV-un4qbATrmx8-0188 이게 바로 저희 병원의 모습인데요 이게 어딜 봐서 병원이라고 볼 수가 있겠어요
+7KCc6rmA7KCV-un4qbATrmx8-0189 잘 보시면 고양이도 있어요
+7KCc6rmA7KCV-un4qbATrmx8-0193 고양이랑 놀기도 하고 심지어 의자에 기대서 자는 분도 있어요
+7KCc6rmA7KCV-un4qbATrmx8-0195 저희가 그렇게 하라고 교육한 것도 아니지만
+7KCc6rmA7KCV-un4qbATrmx8-0203 기존의 방식대로 이루어지는 소통이라면 별 의미가 없을 수도 있는데요
+7KCc6rmA7KCV-un4qbATrmx8-0212 굉장히 이상하죠
+7KCc6rmA7KCV-un4qbATrmx8-0213 아까 보여드린 저런 구조를 바꾸지 않은 채
+7KCc6rmA7KCV-un4qbATrmx8-0214 만족이라는 것만 이렇게 덮어씌우니깐 이런 모습이 생기는거죠
+7KCc6rmA7KCV-un4qbATrmx8-0218 저희는 그래서 구조를 좀 바꿔봤습니다
+7KCc6rmA7KCV-un4qbATrmx8-0226 보다 더 중요한 소통을 만들어 내려고 하는 노력이 있습니다
+7KCc6rmA7KCV-un4qbATrmx8-0227 보통 병원에 가서 의사와 환자가 기존의 진료실에서 이루어지는 대화를 잠시 살펴볼건데요
+7KCc6rmA7KCV-un4qbATrmx8-0229 의사와 환자가 서로 앉아서 처음 이제 마주보고 대화를 나누면서
+7KCc6rmA7KCV-un4qbATrmx8-0230 환자는 자신의 이야기를 계속 하게 되고
+7KCc6rmA7KCV-un4qbATrmx8-0232 그것을 잠시 저희가 보여드리려고 하는데
+7KCc6rmA7KCV-un4qbATrmx8-0234 예 한번 같이 보시죠 제가 말 많은 환자가 됩니다
+7KCc6rmA7KCV-un4qbATrmx8-0235 진상 환자죠
+7KCc6rmA7KCV-un4qbATrmx8-0237 어떻게 오셨어요
+7KCc6rmA7KCV-un4qbATrmx8-0245 뭘 먹을 수가 없어요 물만 먹어도 토하구요 너무 막 제가 너무 힘들거든요
+7KCc6rmA7KCV-un4qbATrmx8-0263 자기가 필요한 어떤 메디컬 히스토리라고 할만한 정보들을 체크해서
+7KCc6rmA7KCV-un4qbATrmx8-0264 그것을 조합해서 기록을 하게 됩니다
+7KCc6rmA7KCV-un4qbATrmx8-0267 그렇게 되면 얘기가 없어지잖아요
+7KCc6rmA7KCV-un4qbATrmx8-0270 그런 아주 하이테크적인 방식이 바로 이겁니다
+7KCc6rmA7KCV-un4qbATrmx8-0276 이것을 좀 더 효율적으로 테크니컬하게 모아서
+7KCc6rmA7KCV-un4qbATrmx8-0278 바로 서비스 시스템을 만들고자 하는 것이
+7KCc6rmA7KCV-un4qbATrmx8-0282 정말 앞으로 바라는게 있어요
+7KCc6rmA7KCV-un4qbATrmx8-0283 어떤 희망이 하나 있는데
+7KCc6rmA7KCV-un4qbATrmx8-0291 그것이 아니라 저희가 20년 후에 정말 바라는 것은
+7KCc6rmA7KCV-un4qbATrmx8-0292 저희가 이 자리에 나와서 이렇게 얘기하지 않아도 될 정도로
+7KCc6rmA7KCV-un4qbATrmx8-0294 그리고 저희같은 의사가 전혀 특별하지도 않고
+7KCc6rmA7KCV-un4qbATrmx8-0296 인간적인 진료가 당연해지는 그런 날이 오기를 바라는 것이

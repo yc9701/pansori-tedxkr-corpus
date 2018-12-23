@@ -1,0 +1,57 @@
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0003 저는 오늘 왜 분석과학기술인가 라는 제목을 가지고
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0004 여러분들께 분석과학기술이 무엇이고
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0005 분석과학기술이 왜 중요한지에 대해 말씀드리고자 합니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0006 저는 1978년도에 제1호 여성유치과학자로
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0007 한국표준과학연구원에 들어왔습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0015 사람의 인지기능이라고 하는 것은 동물의 위험이라든지
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0017 우리의 생존경쟁에서 살아남을 수 있도록
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0022 입사 동기가 나보다 먼저 승진했을 때 우리는 굉장히 좌절하고요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0026 반면에 지구 온난화와 같이
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0029 또한 원자레벨에서 벌어지는 일들
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0031 우리는 지각할 수 없습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0034 그 반면에 상당히 정확하지가 않습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0042 요 위에 있는 오른쪽에 있는 라인하고 일직선상에 있는 것처럼 보입니까
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0045 자 또 다른 예를 들어보이면
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0046 자 이렇게 이제 이 두 개의 선이 있는데
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0051 그래서 우리가 자연의 현상을 제대로 이해하고 알기 위해서는
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0055 무거운 물건이 땅에 더 빨리 떨어진다고 그렇게 사람들을 가르쳐 왔었고
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0056 그 가르침은 2000년 넘게 내려왔었습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0063 지구가 둥글고 지구가 해를 돌고있다 이렇게 알고 있습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0064 이처럼 우리가 자연의 정확한 현상을 알기 위해서는
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0065 우리가 느끼는 감각에 의존해서는 안되고
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0071 적당한 모델을 만들어서 지식을 만드는 지식체계를 말합니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0073 인류의 가장 중요한 발명은 이것도 저것도 아니고
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0074 이 과학적인 방법론이다 라고 말합니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0076 우리 인류의 생활을 완전히 변화시켰습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0079 엄청나게 우리 인류생활이 변화를 했습니다만은
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0089 이런 포인트메져먼트가 주로 많이 행해졌었는데요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0096 그리고 최근에는 많은 정보량을 한꺼번에 처리할 수 있는
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0112 관찰하고 측정하고 해석하는 데 주안점을 두고 있습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0121 이 조성이 미국산하고 호주산하고
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0131 진도가 얼마만큼 진행되는지
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0140 이쪽은 굉장히 해상도가 높아서
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0144 좀더 올바른 치료법을 찾아낼 수 있도록 해주는 것이지요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0148 건강검진이 뭡니까
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0149 처음부터 끝까지 측정하고 분석입니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0151 우리 생활을 편리하게 해주고 우리건강을 지켜주게 되는 그런 역할을 하게 되고요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0156 정상적인 생활을 가능하게 해줄 수가 있고요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0157 폭력적인 사이코패스같은 사람들도 적절한 치료를 하게 되면
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0164 이 사람들은 이 발명으로 인해서 1986년에 노벨물리학상을 받았고요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0172 이 이후에 유전자 공학이 발전하고
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0182 척추질환을 진단하고 치료하는데도 많이 쓰더라구요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0184 1901년부터 2009년까지 과학분야 노벨 수상자 중에서
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0186 1914년 이후부터 보면은 85가
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0189 여기서는 우리나라에 벌써 대형연구시설에
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0193 연구장비비의 거의 대부분은 사실은 분석장비라고 볼 수 있습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0198 엄청난 경상수지 적자를 보이고 있는 겁니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0201 이것은 우리나라 돈으로 1조원에 해당하는 거지요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0204 우리나라 연구개발비가 늘어나면 늘어날수록
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0213 또한 아까 말씀드린대로 경상수지적자를 개선해서
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0216 우리나라는 그동안에 선진국을 모방하고 추격해서
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0218 그 상태로 지금 10년동안 머물러 있습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0221 분석과학기술이 개발이 되어야 되는 겁니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0222 그래서 우리 분석과학기술이 대단히 중요하다는 것이구요
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0225 분석과학기술대학원을 설립했습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0226 이 분석과학기술대학원은 앞으로 유능한 분석과학기술인력을 양성해서
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0227 우리 대한민국에 노벨상을 안기도록 노력하겠습니다
+7KCV6rSR7ZmU-Q4rvB0NaxGE-0228 경청해주셔서 감사합니다

@@ -1,0 +1,126 @@
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0002 강연 정말 잘 들었는데요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0004 제가 정말 창의적인 인재같습니다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0010 인문학이라고 하는 것에 관심을 가지게 된 계기가
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0013 과학시간에 과학실에 가서
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0015 그럼 이제 지구본이 이렇게 있고
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0018 태양을 실제 크기로 하면
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0042 그런 생각이 들었어요 그 순간
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0043 상상력이 뛰어났죠
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0052 공부를 하는데
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0062 가시처럼
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0069 어떻게 살아야할지
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0072 붓다는 왕자였잖아요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0081 지금의 제가 이렇게
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0082 명확한 언어들로 말씀을 드리지만 그 때는 그냥 멍하게 이렇게
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0083 생각만 있고
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0086 땡깡이라든지
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0090 인디고서원이라는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0093 청소년은 아니었거든요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0095 좋아하는 그런 아이였는데요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0097 방황하던 차에
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0099 하고 갔던 곳이
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0101 오아시스 같은 곳이 되었습니다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0103 이미지가 떠오르지만 사실 오아시스라고 하는 것은
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0105 인문학 수업이 아닌 다른 시간은
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0107 정말 제
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0110 그 광활한 우주에서 나 혼자
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0111 홀로 있는 그런 느낌
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0112 그런데 인디고서원을 만나면서
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0113 그 사막에서 잠시 맑은 물을 마실 수 있는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0115 그 맑은 물이라는 것은 다름이 아니라
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0122 신기하게도 목소리가 들리는거예요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0123 어떤 목소리
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0138 정말 아름답게 보낼 수 있었습니다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0139 어떻게 살 것인가
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0141 고민하고 답을 찾아 나가고
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0147 왜 아직도 그렇게 많은사람들이 굶어죽고 있는것인가
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0148 그리고
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0151 모든 청소년들이
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0155 이 두가지 사실이 만났을 때
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0159 그럼에도
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0161 함께 고민을 할 수 있었기 때문에
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0165 이 세계는 의미심장한 것도 부조리한 것도 아니다 다만 존재할 뿐이다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0167 저는 그 전까지
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0179 그냥 다만 존재할뿐이다 마치 사막처럼
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0190 어떻게 살아야 하는가
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0193 주어지지 못한 채로
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0195 그 문제를 어떻게 해결할 것인가
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0197 그 문제에 대한 답은 저안에 있었죠
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0201 친구들과 함께 소통을 하면서
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0204 만들어왔으니까요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0206 일주일에 한번 있는 오아시스같은 이곳에 모여서 우리가
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0207 즐겁게 희희낙락 할것이 아니라
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0210 행복하게 살아갈 수 있는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0211 마을로 만들 것인가
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0221 라는 긴 제목의 청소년 토론 행사입니다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0223 제가 학교에가면 친구들한테
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0228 그런 생각을 했어요 그러다가
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0231 그런데 영상은
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0232 친구들이
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0233 재밌게 본다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0236 생각할 거리도 많이 던져주고 또 감동도 주는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0243 주제에 맞는 영상을 선정하고
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0246 정세청사라는 토론행사에
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0250 지금 6년째 이어지고 있는데요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0254 그렇게
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0255 제일 처음에 제가 과학실에서
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0256 느꼈던 고민이
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0260 더 많은 전국의 청소년들과 함께
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0261 소통할 수 있는 장으로 성장하는 것을 보면서
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0264 지금은 전국 17개 도시에서 정세청세가 열리고 있지만
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0266 또 청소년들 뿐만 아니라 여기 오신 여러분도 마찬가지고
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0270 우주의 관점속에서 나의 존재를 성찰하고
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0272 라는 가장 단순한 인간적인 물음을 던지고 살고 있을까
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0274 왜 그런 걸까
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0277 제가 마치
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0278 고등학교에서 아침7시부터 밤 11시까지
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0280 누군가는 생계때문에
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0285 전세계적으로 지금 공유하고 있는 문제구나
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0287 그리고 이런 고민을 하고 있는것이 우리 뿐만이 아니라
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0296 금방 보시는 것처럼
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0300 그리겠다는 꿈을 가지게 된 것입니다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0321 이스라엘 출신의 다니엘바렌보임이라는 이분인데요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0322 세계적인 연주가와
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0323 에드워드 사이드라는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0325 서동시집 오케스트라라는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0328 팔레스타인과 이스라엘이 분쟁지역이잖아요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0330 하나의 오케스트라로 만들어서
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0334 심각한 분쟁지역인 팔레스타인의 수도 라말라에서
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0340 저렇게
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0341 평화를
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0343 그렇다면 우리는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0344 우리가 하고 있는 책으로
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0346 소통의 장을 만들어 보자
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0347 라는 꿈을 가지게 됐습니다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0353 만난 사진들입니다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0358 행사를 준비해서
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0360 여기서는 저희가 1년 반 동안 만났던 가장
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0362 부산시민들과 또는 전국의 청소년들과
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0378 어떻게 보면
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0383 2012년 프로젝트를 하면서 저희가 마지막으로 만난
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0384 학자는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0387 이분의 책이 최근에 고독을 잃어버린 시간이라는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0388 제목으로 번역이 되어 나오기도 했는데요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0390 많은 이야기를 나눴지만
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0391 오늘 여러분과 나누고 싶은 하나의 이야기가 있다면
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0394 중학교 과학실에서 했던 고민도
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0396 나에게 주어진 짧은 인생을 어떻게 하면
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0397 행복하게
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0403 그러면 반대로
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0404 행복의 반대말은 뭐라고 생각 하시나요
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0410 불행이 아니라
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0412 이 말이
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0413 저에게
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0415 함께 공유한 청소년들에게 정말
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0417 이유는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0423 가을타는 고독이 아니라
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0427 먼지같은
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0429 그리고 아까 얘기 했듯이 진화론적으로 보면
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0433 시간이
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0434 고독한 시간이라고 생각을 합니다
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0437 제가 계속 활동하고 있는
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0438 방향도
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0439 그러한 시간을
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0440 최대한 많은 청소년들과
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0443 우리 같이 아까 어깨도 주무르고 뽀뽀도 할 뻔 했지만
+7Jyk7ZWc6rKw-W-vbPHzNDKA-0445 시간이 되었으면 합니다 고맙습니다

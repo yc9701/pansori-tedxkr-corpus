@@ -1,0 +1,110 @@
+7Zmp65GQ7KeE-SP67ty4SXQA-0001 저는 오마이뉴스가 창간되던 2000년
+7Zmp65GQ7KeE-SP67ty4SXQA-0003 내년이면 10년이 되는데요
+7Zmp65GQ7KeE-SP67ty4SXQA-0006 동네하면 어떤 느낌이 드십니까
+7Zmp65GQ7KeE-SP67ty4SXQA-0011 하지만 저는 제가 있는 곳에서부터 시작해 볼 수 있지 않을까
+7Zmp65GQ7KeE-SP67ty4SXQA-0012 내 동네가 내가 좀 더 넓은 세상으로 나아가는
+7Zmp65GQ7KeE-SP67ty4SXQA-0013 창구가 되지 않을까 그런 생각을 해보고 싶었습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0014 그래서 오늘 제가 여러분께 드리고자하는 이야기의 제목은
+7Zmp65GQ7KeE-SP67ty4SXQA-0017 저는 제가 제 동네라고 생각하는 곳에서
+7Zmp65GQ7KeE-SP67ty4SXQA-0018 설계했던 두 개의 건물을 보여드림으로써
+7Zmp65GQ7KeE-SP67ty4SXQA-0019 이 이야기를 시작하고자 합니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0020 첫 번째 건물입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0021 지금 보시고 계시는 이 그림은
+7Zmp65GQ7KeE-SP67ty4SXQA-0024 첫 번째 그림입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0027 이 공간을 내려다 볼 수 있는 또 다른 공간이 위에 있고
+7Zmp65GQ7KeE-SP67ty4SXQA-0033 우리나라에서 가장 오랫동안 운영중인
+7Zmp65GQ7KeE-SP67ty4SXQA-0036 지금으로부터 무려 160여년 전인
+7Zmp65GQ7KeE-SP67ty4SXQA-0037 1847년 북한에서 처음 만들어졌습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0038 625 전쟁당시 서울로 이주를 했고
+7Zmp65GQ7KeE-SP67ty4SXQA-0041 종로 세무서에서 세금 오래 낸 기업으로 상도 받았습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0042 그 자체로 상당히 오래된 역사 문화 컨텐츠고
+7Zmp65GQ7KeE-SP67ty4SXQA-0045 그런 건물을 저렇게 짓겠다고 제안을 했습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0046 왜냐 한방은 천연재료를 가지고 우리 몸의 자연치유력을 통해서
+7Zmp65GQ7KeE-SP67ty4SXQA-0047 병을 고치는 그런 철학을 갖고 있는 의료업입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0048 그런데 너무나 많은 한방병원에서 그 가장 성스러운 공간
+7Zmp65GQ7KeE-SP67ty4SXQA-0049 약을 만드는 그 공간은 구석에 정말 아무도 안보이는 곳에 가 있습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0051 이 가장 중요한 공간이 건물의 전면으로 나올 수 있지 않을까
+7Zmp65GQ7KeE-SP67ty4SXQA-0052 지금 보시고 계시는 이 사진
+7Zmp65GQ7KeE-SP67ty4SXQA-0053 이 건물이 위치하고 있는 이 동네를 보십시오
+7Zmp65GQ7KeE-SP67ty4SXQA-0055 공사 당시에 시멘트를 비벼서 이것을 보내는 그 차가 들어갈 수가 없어서
+7Zmp65GQ7KeE-SP67ty4SXQA-0062 이런 공간에서 약을 달이면서
+7Zmp65GQ7KeE-SP67ty4SXQA-0063 중금속이 들어간 오염된 약재료를 쓸 수 있을까요
+7Zmp65GQ7KeE-SP67ty4SXQA-0065 우리는 투명한 공간을 만들어서
+7Zmp65GQ7KeE-SP67ty4SXQA-0066 점차로 우리 사회에서 신뢰를 잃어가고 있었던 한방
+7Zmp65GQ7KeE-SP67ty4SXQA-0067 비방과 비밀 이런 것에 의존하고 있었던 한방이라는 세계를
+7Zmp65GQ7KeE-SP67ty4SXQA-0073 유니폼도 바꿨습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0076 약을 조제하는 공간입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0078 이 건물 재료는 한방과도 똑같은 정신을 갖고 있습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0081 그대로 날 것으로 사용하기로 했습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0082 페인트를 거의 사용하지 않았습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0087 약을 만드는 광경도 봅니다 살아있는 박물관입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0088 지하에 있는 문화공간에서는 강의도 하고 세미나도 하고
+7Zmp65GQ7KeE-SP67ty4SXQA-0089 전시도 합니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0093 때때로 이 지하에 있는 문화공간에서는
+7Zmp65GQ7KeE-SP67ty4SXQA-0096 저는 이것을 도시의 창자라고 합니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0099 하지만 굉장히 현대적인 건물이지만
+7Zmp65GQ7KeE-SP67ty4SXQA-0100 이 재료나 색상은 주변에 있는 건물의 재료나 색상에서 많은 부분을 빌려온 것입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0101 그래서 그 동네의 일부가 될 수 있지 않을까 이런 생각을 했던 것이죠
+7Zmp65GQ7KeE-SP67ty4SXQA-0104 두 번째 건물입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0107 반 벤 버클 이런 사람들을 들으면서 성장한 세대입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0110 국문학과 사람 안갔다고 그랬죠
+7Zmp65GQ7KeE-SP67ty4SXQA-0113 한옥을 20세기에 다시 짓는 것은
+7Zmp65GQ7KeE-SP67ty4SXQA-0116 그러던 제가 이런 일을 하게 됐습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0121 자기는 판소리를 정통으로 공부한 사람이지만
+7Zmp65GQ7KeE-SP67ty4SXQA-0125 내가 하고자 하는 것도 한옥이라는 오래된 형식이지만
+7Zmp65GQ7KeE-SP67ty4SXQA-0130 외관을 보시면 전형적인 한옥의 모습입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0132 내부 사진입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0134 자세히 보시면 얘기가 좀 달라집니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0135 여기 걸려있는 저 그림은
+7Zmp65GQ7KeE-SP67ty4SXQA-0136 우리나라의 근대화가인 원계홍씨의 그림입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0140 여러 가지 다양한 것들이 섞여 있습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0143 홈 오토메이션 
+7Zmp65GQ7KeE-SP67ty4SXQA-0146 절대로 조선 시대의 사람을 위한 집이 아닙니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0149 조선시대의 자기 조선시대의 가구 현대작가의 작품
+7Zmp65GQ7KeE-SP67ty4SXQA-0155 불편한 아궁이에 부뚜막 있는 그런 부엌아니죠
+7Zmp65GQ7KeE-SP67ty4SXQA-0156 여러분들 제가 한옥작업을 시작한 다음 가장 많이 받은 질문이 뭔지 아십니까
+7Zmp65GQ7KeE-SP67ty4SXQA-0157 춥지 않아요
+7Zmp65GQ7KeE-SP67ty4SXQA-0158 춥지 않습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0162 지금은 많이 사라지고 없어진 전통입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0164 현대 예술작품을 컬렉션하시는 분인데
+7Zmp65GQ7KeE-SP67ty4SXQA-0167 제가 오늘 정말 하고 싶은 얘기는 이런 것입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0168 우리는 지금 한국이란 나라를 살고 있지만
+7Zmp65GQ7KeE-SP67ty4SXQA-0173 하나씩 보시겠습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0175 이것은 주로 19세기 이전
+7Zmp65GQ7KeE-SP67ty4SXQA-0176 우리나라가 고립되어 있었을 때
+7Zmp65GQ7KeE-SP67ty4SXQA-0178 닫혀있던 나라였을 때
+7Zmp65GQ7KeE-SP67ty4SXQA-0179 그런 가치관입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0186 화해하는 것은 나라를 파는 것이다
+7Zmp65GQ7KeE-SP67ty4SXQA-0204 이 두 장의 사진으로 설명해드리겠습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0206 서울 보문동 안암동 일대의 한옥마을입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0209 정확하게 23년이 지난 몇 년 전
+7Zmp65GQ7KeE-SP67ty4SXQA-0210 저는 서울에 관한 작은 책을 쓰고 있었습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0212 다시 찾아가서 사진을 찍었습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0215 이런 것들이 이 한옥들에 있었고
+7Zmp65GQ7KeE-SP67ty4SXQA-0222 복습하겠습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0227 거듭날 수 밖에 없다
+7Zmp65GQ7KeE-SP67ty4SXQA-0232 20세기는 우리에게 자기 부정의 시대였어요
+7Zmp65GQ7KeE-SP67ty4SXQA-0233 그리고 우리는 발전하고 싶었고 우리는 근대화가 필요했는데
+7Zmp65GQ7KeE-SP67ty4SXQA-0234 우리의 근대화란 바로 서구화였습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0242 우리 스스로 못만들어내고
+7Zmp65GQ7KeE-SP67ty4SXQA-0244 이상한 문명적인 습관이 생긴거죠
+7Zmp65GQ7KeE-SP67ty4SXQA-0245 심하게 얘기하자면 20세기 한국에서 가장 성공하는 방법은
+7Zmp65GQ7KeE-SP67ty4SXQA-0247 학문 수입하고 제품 수입합니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0250 TED만해도 그렇습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0252 앞으로 5천일이 지났을 때
+7Zmp65GQ7KeE-SP67ty4SXQA-0255 앞으로 5천일이 지났을 때
+7Zmp65GQ7KeE-SP67ty4SXQA-0256 우리도 뭔가 근사한 거 만들어서
+7Zmp65GQ7KeE-SP67ty4SXQA-0257 전세계 다른 인류들과 한 번 즐겁게 한 번 나눠봅시다
+7Zmp65GQ7KeE-SP67ty4SXQA-0258 우리에게 20세기 로컬 별로 중요하지 않았어요
+7Zmp65GQ7KeE-SP67ty4SXQA-0260 자 이제 새로운 시대가 됐죠
+7Zmp65GQ7KeE-SP67ty4SXQA-0262 새로운 한국의 탄생
+7Zmp65GQ7KeE-SP67ty4SXQA-0263 왼손잡이 오른손잡이가 아닌 양손잡이의 생각
+7Zmp65GQ7KeE-SP67ty4SXQA-0267 더 깊은 이해를 가져야 되고
+7Zmp65GQ7KeE-SP67ty4SXQA-0269 더 원활하게 더 넓게 전 세계와 소통할 수 있어야 됩니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0273 마지막으로 제 얘기를 하겠습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0277 이 빨간 점들이 제가 그동안 저희 동네에 했던 일입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0281 저는 완전히 반대로 갔어요
+7Zmp65GQ7KeE-SP67ty4SXQA-0285 저는 출발을 제가 서 있는 곳에서 한 것 뿐입니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0288 저는 건축가지만
+7Zmp65GQ7KeE-SP67ty4SXQA-0292 마지막으로 여러분께 두 가지 질문 드리겠습니다
+7Zmp65GQ7KeE-SP67ty4SXQA-0293 여러분은 어디서 출발하고 계십니까

@@ -1,0 +1,71 @@
+6rmA7IKw7ZWY-Mwo47MAsMtE-0004 저를 보고 있다는 사실도 좀
+6rmA7IKw7ZWY-Mwo47MAsMtE-0011 저는 비문명권에 살다 온 사람입니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0029 열대우림입니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0031 여러분 잘 아시다시피
+6rmA7IKw7ZWY-Mwo47MAsMtE-0034 생물 다양성이 굉장히 높다는 것입니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0051 손잡이 같은 데
+6rmA7IKw7ZWY-Mwo47MAsMtE-0068 나무가
+6rmA7IKw7ZWY-Mwo47MAsMtE-0075 비가 엄청나게 옵니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0088 구석 구석
+6rmA7IKw7ZWY-Mwo47MAsMtE-0092 그 생물들이 서로 먹고 먹히고 사냥한다 하더라도
+6rmA7IKw7ZWY-Mwo47MAsMtE-0095 평등입니다 평등
+6rmA7IKw7ZWY-Mwo47MAsMtE-0097 노트북을 놓고
+6rmA7IKw7ZWY-Mwo47MAsMtE-0099 진짜 노트북이죠
+6rmA7IKw7ZWY-Mwo47MAsMtE-0110 우리는 사실 우리가 다양한 분야를
+6rmA7IKw7ZWY-Mwo47MAsMtE-0111 웃기나요  
+6rmA7IKw7ZWY-Mwo47MAsMtE-0121 우리와 관계있는 우리 친척이죠
+6rmA7IKw7ZWY-Mwo47MAsMtE-0125 진짜로 한 적이 없어요
+6rmA7IKw7ZWY-Mwo47MAsMtE-0128 하지만 그 나라 중에서
+6rmA7IKw7ZWY-Mwo47MAsMtE-0130 일본 밖에 없습니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0135 한마리도 물론 인간이 있지만
+6rmA7IKw7ZWY-Mwo47MAsMtE-0139 저는 거기서 어떤 동물을 연구했냐면은
+6rmA7IKw7ZWY-Mwo47MAsMtE-0142 팔이 길겠죠
+6rmA7IKw7ZWY-Mwo47MAsMtE-0172 옆에서 그냥
+6rmA7IKw7ZWY-Mwo47MAsMtE-0175 전혀 그런게 없어요
+6rmA7IKw7ZWY-Mwo47MAsMtE-0178 영장류입니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0186 그 단계를 이루기 위해서 우리는
+6rmA7IKw7ZWY-Mwo47MAsMtE-0239 인간이 만든 공간임에도 불구하고
+6rmA7IKw7ZWY-Mwo47MAsMtE-0272 이상하게 도시에 살면서도
+6rmA7IKw7ZWY-Mwo47MAsMtE-0273 살기 어려운 속성 또는 사람들이 있습니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0275 고민하는 동물 봤습니까
+6rmA7IKw7ZWY-Mwo47MAsMtE-0280 이런 동물은 없습니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0286 바퀴벌레 본 적 있으시죠 그 확신에 찬 모습
+6rmA7IKw7ZWY-Mwo47MAsMtE-0287 그 확신이 굉장히 귀엽습니다 사실은
+6rmA7IKw7ZWY-Mwo47MAsMtE-0292 완전하게 무색해졌을 경우에는
+6rmA7IKw7ZWY-Mwo47MAsMtE-0302 여러분은 왜 도시에 남아있습니까
+6rmA7IKw7ZWY-Mwo47MAsMtE-0307 어쩔 줄 몰라하는 겁니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0308 나무 위에 그대로 남아 있습니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0313 섭생이 가능한 동물입니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0314 어느 정도는 상황이 바뀌어도
+6rmA7IKw7ZWY-Mwo47MAsMtE-0332 훨씬 더 민감하게 영향을 받아요
+6rmA7IKw7ZWY-Mwo47MAsMtE-0341 선택적으로 살아야 되는데
+6rmA7IKw7ZWY-Mwo47MAsMtE-0349 여러분 졸업 사진 찍을 때
+6rmA7IKw7ZWY-Mwo47MAsMtE-0360 그 국민 여동생을 이사람한테서 저사람으로
+6rmA7IKw7ZWY-Mwo47MAsMtE-0364 누구나 비슷한 곳에 추억이 있고
+6rmA7IKw7ZWY-Mwo47MAsMtE-0373 산다는 것은 사실은 나와 내가 만나고 싶은 사람
+6rmA7IKw7ZWY-Mwo47MAsMtE-0383 그렌져 오고
+6rmA7IKw7ZWY-Mwo47MAsMtE-0391 그 다음에 그 친구는 만날 상대가 없기 때문에
+6rmA7IKw7ZWY-Mwo47MAsMtE-0400 그래서 너무 그런 성격 때문에 사냥을 잘 받아요
+6rmA7IKw7ZWY-Mwo47MAsMtE-0407 나가면 없다니까
+6rmA7IKw7ZWY-Mwo47MAsMtE-0412 살고 있지만 살고있는 게 아닙니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0419 제가 내는 소리에 동하시면
+6rmA7IKw7ZWY-Mwo47MAsMtE-0427 나 여기있어
+6rmA7IKw7ZWY-Mwo47MAsMtE-0438 도처에 깔려있습니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0456 저는 어렸을 때 굉장히
+6rmA7IKw7ZWY-Mwo47MAsMtE-0470 학회에 갔더니 이렇게 한 방에 다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0476 여러분에게 호소하러 나온 겁니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0486 하는 것 그럴 수 없는 것
+6rmA7IKw7ZWY-Mwo47MAsMtE-0497 스페셜리스트 동물의 스페셜리스트는
+6rmA7IKw7ZWY-Mwo47MAsMtE-0508 바로 우리 인간입니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0511 우리가 찾아가야 됩니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0515 유연성이 주어진 그 능력 때문에
+6rmA7IKw7ZWY-Mwo47MAsMtE-0530 여러분은 스스로 반성을 해보셔야 됩니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0536 그만큼 다른 사람에게도
+6rmA7IKw7ZWY-Mwo47MAsMtE-0542 여러분의 그 깊은 밤의 고독이
+6rmA7IKw7ZWY-Mwo47MAsMtE-0557 바로 거기에 목적이 있는 겁니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0561 연구를 시작을 했던 것입니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0562 그래서 이제 경주가 끝났습니다
+6rmA7IKw7ZWY-Mwo47MAsMtE-0575 여러분들도 여러분들이
+6rmA7IKw7ZWY-Mwo47MAsMtE-0576 여러분들의 바탕을 발견할 때
+6rmA7IKw7ZWY-Mwo47MAsMtE-0578 남들에게 희망이 될 수 있고
+6rmA7IKw7ZWY-Mwo47MAsMtE-0580 여러분 절대로 멸종하지 마십시오

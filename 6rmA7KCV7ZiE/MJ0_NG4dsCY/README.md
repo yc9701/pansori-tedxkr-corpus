@@ -1,0 +1,60 @@
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0005 사회적 기업에 대해서 사람들한테 얘기를 해보면
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0010 그런 멋진 일이거든요
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0018 남들한테 도움을 받아야 되고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0026 그 모델들이 전부가 아니거든요
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0027 돈을 많이 벌수 있는 모델들도 있고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0031 사람들이 잘 모르고 있다라는게 제 생각이었습니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0033 사회적 기업가가 이 세상에 내놓는 선물이라고 생각합니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0034 돈을 벌면서도
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0039 그런 것들을 정말정말 디테일하게 설계를 하고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0052 20대 초반에 어떤 사람들이 가질 수 있는
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0059 사는게 너무 끔찍했었습니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0068 1달러 미만으로 살고 있는 사람들이 수억명이구요
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0069 그렇기 때문에 여러가지 문제점들이 발생할텐데
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0071 이 사람들은 밥도 제대로 못먹고 교육도 제대로 못받고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0072 아프면 병원에도 못가는게 당연한 어떤 삶을 살고 있습니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0082 수술하는데 8만원 정도의 비용이드는데
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0086 인도에는 있었습니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0090 맥도날드의 그 체계적이고 효율적이고 생산성 높은
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0103 임금이 높은 의사들의 효율성을 극단적으로 향상을 시켰구요
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0106 진단 진료라든가 상담이라든가 이런 모든 절차들은
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0108 이 사람들을 교육을 시켜서
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0117 아무리 좋은 솔루션이 있어도 사람들이
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0126 그래도 아무것도 확인을 하지 않고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0130 그래서 이제 사람이 모이지 않으면
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0131 이게 다 비용이거든요 마케팅을 해야 되고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0146 만약에 제가 이거를 하다가 실패하더라도
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0158 어렵겠다고 생각했는데
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0163 누군가 희생을 해야 된다는 얘기는
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0166 두번째는 문제가 광범위한가였습니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0179 그리고 이 사업을 통해서 만들어내는 어떤 변화들을 보고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0185 기뻐할 수 있지 않으면 못하는거다 라고 생각했습니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0196 이미 10퍼센트인 열명중에 한명인
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0198 중요한거는 앞으로도 엄청나게 빠르게 성장할거란거
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0199 전 세계에서도 우리나라가 가장 빠르다고 알고 있습니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0203 현대 의학에서는 치료가 불가능한 질병이구요
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0205 거의 다 나이를 먹게 되면 가져갈 수 밖에 없는 그런 문제입니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0212 이런 문제를 해결하기 위한 유일한 솔루션이 보청기였는데
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0214 한쪽도 아니고 양쪽 하면 따불입니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0246 필요할 때마다 만나서 만들어야 되는게 아니라
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0247 미리 대량 생산이 가능합니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0248 대량생산을 통해서 원가를 극단적으로 낮출 수 있었구요
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0249 저희가 한두가지의 제품만을 취급하고 있습니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0256 저희가 정한 일정한
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0259 이건 그사람들만 가지는 혜택입니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0262 아무리 좋은것도 쓰지않으면 무용지물이기 때문에
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0265 그래서 이제 수요자가 항상 어느정도 많이 대기를 하고 있고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0268 물류비용도 많이 절감이 됩니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0271 저희가 비즈니스를 함으로 인해서 한국에서는 더이상
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0283 1000원이 나오면 열배인거고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0288 사회적 기업에 대해서 처음에 말씀드렸다시피
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0300 주류 비즈니스에서도 충분히 승산이 있을만한 전략이고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0303 누가 먼저 알게되느냐도 상당히 중요하지 않나
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0304 이런 생각을 하게되고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0309 그렇게 사회적 기업가들이 많아지면 많아질수록
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0314 제가 비즈니스를 함으로써 해결이 되는 거거든요
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0318 그래서 되게 좋은 기회라고 생각을 하고
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0321 그래서 젊은 사람들이 해야되는게
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0324 둘 중에 하나가 아닌가 생각이 듭니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0326 일이 아닌가 라고 저는 개인적으로 생각을 합니다
+6rmA7KCV7ZiE-MJ0_NG4dsCY-0336 좀 같이 나눌수 있으면 좋겠다 이런 생각이 듭니다

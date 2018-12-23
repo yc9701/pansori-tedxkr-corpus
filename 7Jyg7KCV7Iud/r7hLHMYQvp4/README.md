@@ -1,0 +1,157 @@
+7Jyg7KCV7Iud-r7hLHMYQvp4-0001 저는 컨설팅을 하는 사람입니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0002 컨설팅이라고 하니까 많은 분들이
+7Jyg7KCV7Iud-r7hLHMYQvp4-0003 부동산을 연상하시던데요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0004 저는 경영 컨설팅을 하고 있어요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0005 주로 기업의 인사제도
+7Jyg7KCV7Iud-r7hLHMYQvp4-0006 그 중에서도 평가제도와 연봉제
+7Jyg7KCV7Iud-r7hLHMYQvp4-0008 하지만 오늘 제가 말씀드리고 싶은 주제는 바로
+7Jyg7KCV7Iud-r7hLHMYQvp4-0009 평가를 버려라
+7Jyg7KCV7Iud-r7hLHMYQvp4-0010 이것이 되겠습니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0012 밥그릇을 차는 그런 소리죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0015 제가 15년 동안
+7Jyg7KCV7Iud-r7hLHMYQvp4-0023 해결되지 못하고 있다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0024 이렇게 깨달았습니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0037 쓰지 않고 있습니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0038 고객이 그만큼 적다는 소리죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0041 도무지 감을 잡지 못해요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0043 당연히 그 제품을 빨리 폐기하고
+7Jyg7KCV7Iud-r7hLHMYQvp4-0044 더 좋은 제품을 만들기 위해서 노력을 하셔야겠죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0045 그게 당연한 겁니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0048 전세계의 인사담당자분들한테
+7Jyg7KCV7Iud-r7hLHMYQvp4-0057 이 평가제도를 그대로 유지하시겠습니까
+7Jyg7KCV7Iud-r7hLHMYQvp4-0059 고객들이 헷갈려 하면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0060 어떻게 하십니까
+7Jyg7KCV7Iud-r7hLHMYQvp4-0062 마찬가지입니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0063 이렇게 평가제도가 잘못 운용된다면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0065 그럼에도 불구하고 많은 기업에서는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0066 아직까지 평가제도를
+7Jyg7KCV7Iud-r7hLHMYQvp4-0070 여러가지 대답이 나옵니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0071 연봉 승진 퇴출
+7Jyg7KCV7Iud-r7hLHMYQvp4-0073 여러가지 역량 개발
+7Jyg7KCV7Iud-r7hLHMYQvp4-0075 하지만 진짜로 가슴에 손을 얹고
+7Jyg7KCV7Iud-r7hLHMYQvp4-0078 그게 없으면 어떻게 사람들한테 돈을 주느냐
+7Jyg7KCV7Iud-r7hLHMYQvp4-0079 어떻게 사람을 승진시키느냐
+7Jyg7KCV7Iud-r7hLHMYQvp4-0080 일을 못하는 아주 미운 사람 있으면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0081 어떤 근거로 그 사람을 내쫓느냐
+7Jyg7KCV7Iud-r7hLHMYQvp4-0082 그런 용도로 평가를 많이
+7Jyg7KCV7Iud-r7hLHMYQvp4-0083 운용을 하고 계십니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0084 여기 평가를 받아보시거나
+7Jyg7KCV7Iud-r7hLHMYQvp4-0085 향후에 회사에 들어가서
+7Jyg7KCV7Iud-r7hLHMYQvp4-0087 그분들은 모두 다 그렇게
+7Jyg7KCV7Iud-r7hLHMYQvp4-0089 사실 하지만
+7Jyg7KCV7Iud-r7hLHMYQvp4-0092 인재를 육성시켜서
+7Jyg7KCV7Iud-r7hLHMYQvp4-0094 회사에 기여할 수 있도록 만드는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0098 수많은 기업이
+7Jyg7KCV7Iud-r7hLHMYQvp4-0104 어떤 문제점이 있다란는 것이죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0105 인간에 대해서 잘못된 가정을 하고 있기 때문에
+7Jyg7KCV7Iud-r7hLHMYQvp4-0109 개인 성과를 자극하면 조직 성과가 높아진다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0117 탈출하시오 그러면 빨리 어떻게든 빠져나가야겠죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0118 하지만 실제로 실험을 해보면 그렇게 하지 않습니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0121 특히 예쁜 여자가 있다면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0128 그렇게 하니까
+7Jyg7KCV7Iud-r7hLHMYQvp4-0129 그 다음부터 연구자들이 원하는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0133 이 작은 금액이
+7Jyg7KCV7Iud-r7hLHMYQvp4-0136 우리가 인간은 만물의 영장이라고 하죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0145 오이 대신에
+7Jyg7KCV7Iud-r7hLHMYQvp4-0148 원래 오이는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0151 당도가 높으니까 높은 연봉에 해당됩니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0153 원래 좋아했던 오이를 바닥에 내팽개쳤다고 합니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0154 이렇게
+7Jyg7KCV7Iud-r7hLHMYQvp4-0157 인간도 다르지 않습니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0160 두 번째 가정은
+7Jyg7KCV7Iud-r7hLHMYQvp4-0162 아주 오래된 꿈입니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0169 왜냐 뜨거운 온기가 몸에 전달되면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0178 여긴다고 합니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0179 이렇게 우리가
+7Jyg7KCV7Iud-r7hLHMYQvp4-0183 이건 뭘까요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0184 객관적인 평가는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0185 원천적으로 불가능하다는 것이죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0187 세번째
+7Jyg7KCV7Iud-r7hLHMYQvp4-0193 100m 달리기를 누가 더 잘하는지 알려면 어떻게 하면 됩니까
+7Jyg7KCV7Iud-r7hLHMYQvp4-0197 아마 여러분들의 머리 속에는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0202 이런 정량적인 지표를 생각하면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0203 아주 무수히 많은 평가제도가
+7Jyg7KCV7Iud-r7hLHMYQvp4-0209 그냥 딱 보면 압니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0210 평가 지표가 없어도 그냥 알아요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0213 그렇지 않으면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0214 상대방한테 공격을 당하기 때문에
+7Jyg7KCV7Iud-r7hLHMYQvp4-0218 네 번째는 뭐냐면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0219 철저히 평가하면 직원들이 열심히 일한다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0223 이 회사에서
+7Jyg7KCV7Iud-r7hLHMYQvp4-0225 이렇게 해서 비서들한테
+7Jyg7KCV7Iud-r7hLHMYQvp4-0234 그래서 좋은 평가를 받고
+7Jyg7KCV7Iud-r7hLHMYQvp4-0235 그에 따라 높은 보상을 받고 이렇게 된 거죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0240 만일 고객이 불만을 접수하면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0241 10일 이내에 처리해라
+7Jyg7KCV7Iud-r7hLHMYQvp4-0243 라고 한다면 직원들은 어떻게 할까요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0244 직원들은 89일까지 기다립니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0245 그때까지 기다렸다가 막판에 가서 그냥 처리해버려요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0246 이렇게 되면 어떨까요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0248 고객들은 여전히 불만을 가지는 그런 상태죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0252 평가지표를 어떻게 하면 높일 수 있는지
+7Jyg7KCV7Iud-r7hLHMYQvp4-0253 아주 천재적인 능력을 가지고 있어요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0263 여러분들의 채용 실력이 보통 이상이다라고 한다면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0267 그 아래에서 정규 분포로 강제적으로 잘라서
+7Jyg7KCV7Iud-r7hLHMYQvp4-0270 그런 것들은 사실 굉장히 잘못된 가정에
+7Jyg7KCV7Iud-r7hLHMYQvp4-0273 보상을 많이 하면 성과가 좋아진다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0274 누가 여러분한테
+7Jyg7KCV7Iud-r7hLHMYQvp4-0276 그러면 어떻게 하시겠습니까
+7Jyg7KCV7Iud-r7hLHMYQvp4-0277 열심히 일하시겠어요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0278 처음에는 그런 소리 하시죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0279 하지만 그 효과는 고작
+7Jyg7KCV7Iud-r7hLHMYQvp4-0280 한달밖에 못 간다고 합니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0281 연봉을 많이 주면 사람이 겁을 먹어요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0282 내가 일을 못하면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0283 어떻게 될까
+7Jyg7KCV7Iud-r7hLHMYQvp4-0284 돈을 준 만큼 일을 해야되는데
+7Jyg7KCV7Iud-r7hLHMYQvp4-0286 그래서 어떻게 되죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0287 단기적인 성과에 몰입을 하게 되죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0291 여기 어린 아이들이 있죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0296 직원들이
+7Jyg7KCV7Iud-r7hLHMYQvp4-0297 사탕을 주면 좋아하고
+7Jyg7KCV7Iud-r7hLHMYQvp4-0298 잘못하면 혼을 내면 잘하겠지
+7Jyg7KCV7Iud-r7hLHMYQvp4-0308 평가가 없으면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0309 그래도 일을 잘하겠느냐
+7Jyg7KCV7Iud-r7hLHMYQvp4-0311 여러분들은 분명히
+7Jyg7KCV7Iud-r7hLHMYQvp4-0312 그렇게 하겠다 라고 말씀을 하실 겁니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0321 왜 자기자신은 숭고하고
+7Jyg7KCV7Iud-r7hLHMYQvp4-0322 남은 동물과 비슷한
+7Jyg7KCV7Iud-r7hLHMYQvp4-0330 저한테 컨설팅을 받으십시오
+7Jyg7KCV7Iud-r7hLHMYQvp4-0335 첫번째 평가를 폐기하시고
+7Jyg7KCV7Iud-r7hLHMYQvp4-0337 모든 직원관리를
+7Jyg7KCV7Iud-r7hLHMYQvp4-0340 1년에 한 번 평가합니까
+7Jyg7KCV7Iud-r7hLHMYQvp4-0343 이야기를 주고받으면서 거기서 뭔가 문제를 해결하고
+7Jyg7KCV7Iud-r7hLHMYQvp4-0348 일상적으로 일어나야 돼요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0349 그런 걸 무시하고 그냥
+7Jyg7KCV7Iud-r7hLHMYQvp4-0351 사실 굉장히 큰 꿈을 가진거죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0352 이루어질 수 없는 그런 꿈이 되겠습니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0353 두번째
+7Jyg7KCV7Iud-r7hLHMYQvp4-0354 차등보상이 아니라
+7Jyg7KCV7Iud-r7hLHMYQvp4-0356 제가 아까 말씀드렸듯이
+7Jyg7KCV7Iud-r7hLHMYQvp4-0357 직원들의 역량은 거의 비슷해요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0360 그렇다면 어떻게 하면 좋을까요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0362 원칙입니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0363 차등보상을 하게 되면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0364 아까 말씀드렸듯이
+7Jyg7KCV7Iud-r7hLHMYQvp4-0366 이 조직의 지속 가능한 성장 동력이 상실되는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0367 그런 효과가 발생하는 것이죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0368 세번째
+7Jyg7KCV7Iud-r7hLHMYQvp4-0369 현재 직급에서 일 잘하는 사람을 승진시키면 안됩니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0372 영업소장으로 승진시키면 좋을까요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0373 안됩니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0376 승진시켜봤어요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0377 이렇게 하니까 그냥 마구잡이로 뽑은
+7Jyg7KCV7Iud-r7hLHMYQvp4-0379 조직의 성과가
+7Jyg7KCV7Iud-r7hLHMYQvp4-0380 나빠지는 그런 결과를 얻었어요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0382 승진시키기 위한 도구로
+7Jyg7KCV7Iud-r7hLHMYQvp4-0384 승진을 시킬 때는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0386 그 다음부터 제로베이스로 평가하는
+7Jyg7KCV7Iud-r7hLHMYQvp4-0387 그런 것이 필요한 것이죠
+7Jyg7KCV7Iud-r7hLHMYQvp4-0389 의존하지 마시기 바랍니다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0393 그리고 그 대안도 있고요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0395 평가를 없애고도 잘 나가고 있는 회사 많아요
+7Jyg7KCV7Iud-r7hLHMYQvp4-0399 성과가 높으면
+7Jyg7KCV7Iud-r7hLHMYQvp4-0403 협력을 깨뜨리는 주범이다
+7Jyg7KCV7Iud-r7hLHMYQvp4-0407 여러분들도 그런 회사를 만들기 위해서
+7Jyg7KCV7Iud-r7hLHMYQvp4-0409 향후에 회사에 들어가셔도
+7Jyg7KCV7Iud-r7hLHMYQvp4-0411 계속 자기 의견을 어필하시기 바랍니다
