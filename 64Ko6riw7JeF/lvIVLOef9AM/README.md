@@ -1,3 +1,13 @@
+# TEDxBusan
+
+## Title: The true owner of land
+## Speaker: Nam Ki-up
+## Gender: M
+## Place: Busan
+## Year: 2012
+
+[https://www.youtube.com/watch?v=lvIVLOef9AM](https://www.youtube.com/watch?v=lvIVLOef9AM)
+
 - 64Ko6riw7JeF-lvIVLOef9AM-0001 여기 오신 분들에게 질문 한가지 드리겠습니다
 - 64Ko6riw7JeF-lvIVLOef9AM-0009 8년 동안
 - 64Ko6riw7JeF-lvIVLOef9AM-0012 이거는 일본 영국 미국보다
