@@ -1,3 +1,16 @@
+### TEDxDaejeon: With feeling the aesthetics of slowness
+
+- Speaker: 이상은
+- Gender: F
+- Corpus Length: 3:45 (29 fragments)
+- Place: Daejeon
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=43V_QSHvEP0](https://www.youtube.com/watch?v=43V_QSHvEP0)
+- Transcriber: Roy Younghwan Cheon
+- Reviewer:
+
+---
+
 - 7J207IOB7J2A-43V_QSHvEP0-0001 반갑습니다 산에 다니는 이상은입니다
 - 7J207IOB7J2A-43V_QSHvEP0-0006 여러분은 산이라고 하면 어떤 생각이 나시나요
 - 7J207IOB7J2A-43V_QSHvEP0-0013 연애를 하려고 하다보면 서로 관심사가 있어야 되잖아요

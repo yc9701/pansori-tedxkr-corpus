@@ -1,3 +1,16 @@
+### TEDxBusan: Becoming a good-earthling
+
+- Speaker: 이현정
+- Gender: F
+- Corpus Length: 3:53 (95 fragments)
+- Place: Busan
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=R15jiXaSYik](https://www.youtube.com/watch?v=R15jiXaSYik)
+- Transcriber:
+- Reviewer:
+
+---
+
 - 7J207ZiE7KCV-R15jiXaSYik-0000 저희집 책상사진이든요
 - 7J207ZiE7KCV-R15jiXaSYik-0003 테이블 위에 놓여있는 물건
 - 7J207ZiE7KCV-R15jiXaSYik-0004 좋아하는 음악리스트

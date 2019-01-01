@@ -41,7 +41,7 @@ The speech audio included in the corpus are 16 bit FLAC files with sampling rate
 | [With feeling the aesthetics of slowness](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7J207IOB7J2A/43V_QSHvEP0) | 이상은 | F | Daejeon | 2011 | 29 | 3:45 |
 | [Beating disabilities to pioneer grassroots journalism](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7KGw7KO87ZiE/Mcs_1DV6Sgc) | 조주현 | M | Daejeon | 2010 | 37 | 3:56 |
 | [Statistics 3.0](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7J207J247Iuk/9j_HEK5nfyw) | 이인실 | F | Busan | 2011 | 94 | 3:42 |
-| [Why Anlytical Science?](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7KCV6rSR7ZmU/Q4rvB0NaxGE) | 정광화 | F | Daedeok | 2011 | 58 | 3:56 |
+| [Why Analytical Science?](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7KCV6rSR7ZmU/Q4rvB0NaxGE) | 정광화 | F | Daedeok | 2011 | 58 | 3:56 |
 | [Redefinition of soil and its possibilities](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/7Iug6re87Iud/8-dSwR5iUyY) | 신근식 | M | Busan | 2011 | 76 | 3:51 |
 | [Predict disease with face](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/6rmA7KKF7Je0/RMUVo-AZfQM) | 김종열 | M | Daedeok | 2011 | 72 | 4:08 |
 | [Sustainable DoReMi](https://github.com/yc9701/pansori-tedxkr-corpus/tree/master/6rOg6rG07ZiB/aWPB0xeM8UA) | 고건혁 | M | Seoul | 2010 | 78 | 3:10 |

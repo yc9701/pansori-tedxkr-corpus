@@ -1,3 +1,16 @@
+### TEDxBusan: Inconvenient truth of Korean Web
+
+- Speaker: 김기창
+- Gender: M
+- Corpus Length: 1:52 (37 fragments)
+- Place: Busan
+- Year: 2012
+- URL: [https://www.youtube.com/watch?v=WRd7fHY3enA](https://www.youtube.com/watch?v=WRd7fHY3enA)
+- Transcriber: Bella Borahm Hur Vinha
+- Reviewer: Jihyeon J Kim
+
+---
+
 - 6rmA6riw7LC9-WRd7fHY3enA-0035 나 지금 인터넷 뱅킹 시작했어
 - 6rmA6riw7LC9-WRd7fHY3enA-0044 많은 사람들이 전 세계적으로 인터넷 상거래하려면
 - 6rmA6riw7LC9-WRd7fHY3enA-0048 상거래 하지 않겠나 이렇게 생각하실지 모르는데

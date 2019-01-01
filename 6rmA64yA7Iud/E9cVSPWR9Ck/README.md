@@ -1,3 +1,16 @@
+### TEDxDaejeon: Never let go of your passion, just keep working on it
+
+- Speaker: 김대식
+- Gender: ㅡ
+- Corpus Length: 1:50 (23 fragments)
+- Place: Daejeon
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=E9cVSPWR9Ck](https://www.youtube.com/watch?v=E9cVSPWR9Ck)
+- Transcriber: Roy Younghwan Cheon
+- Reviewer:
+
+---
+
 - 6rmA64yA7Iud-E9cVSPWR9Ck-0018 일단은 다른 장난감보다 비싸고 그게 이유는 아니지만
 - 6rmA64yA7Iud-E9cVSPWR9Ck-0027 제가 초등학교 2학년때 독일로 1년 동안 출장을 갈일이 생겼습니다
 - 6rmA64yA7Iud-E9cVSPWR9Ck-0038 일단은 다양한 악기 소리도 들리고

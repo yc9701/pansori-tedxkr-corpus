@@ -1,3 +1,16 @@
+### TEDxBusan: Take time to imagine the world to rights
+
+- Speaker: 윤한결
+- Gender: M
+- Corpus Length: 5:01 (126 fragments)
+- Place: Busan
+- Year: 2013
+- URL: [https://www.youtube.com/watch?v=vbPHzNDKA](https://www.youtube.com/watch?v=vbPHzNDKA)
+- Transcriber: Boeun Choi
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 7Jyk7ZWc6rKw-W-vbPHzNDKA-0002 강연 정말 잘 들었는데요
 - 7Jyk7ZWc6rKw-W-vbPHzNDKA-0004 제가 정말 창의적인 인재같습니다
 - 7Jyk7ZWc6rKw-W-vbPHzNDKA-0010 인문학이라고 하는 것에 관심을 가지게 된 계기가

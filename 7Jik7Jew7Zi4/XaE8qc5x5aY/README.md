@@ -1,3 +1,16 @@
+### TEDxSeoul: Every citizen is a journalist
+
+- Speaker: 오연호
+- Gender: M
+- Corpus Length: 4:10 (61 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=XaE8qc5x5aY](https://www.youtube.com/watch?v=XaE8qc5x5aY)
+- Transcriber:
+- Reviewer:
+
+---
+
 - 7Jik7Jew7Zi4-XaE8qc5x5aY-0000 사람들이   대단한 기대를 가지고 있었는데
 - 7Jik7Jew7Zi4-XaE8qc5x5aY-0001 예 저는 그들의 기대를 배반하고 과를 국문과를 선택했습니다
 - 7Jik7Jew7Zi4-XaE8qc5x5aY-0006 돈을 벌 가능성도 없고 권력을 잡을 가능성도 없고

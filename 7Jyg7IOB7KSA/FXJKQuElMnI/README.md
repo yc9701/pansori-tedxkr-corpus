@@ -1,3 +1,16 @@
+### TEDxSeoul: DIY OOOSSSZZZ band
+
+- Speaker: 우상준
+- Gender: M
+- Corpus Length: 2:22 (44 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=FXJKQuElMnI](https://www.youtube.com/watch?v=FXJKQuElMnI)
+- Transcriber: Daeun Kim
+- Reviewer: Jihyeon J. Kim
+
+---
+
 - 7Jyg7IOB7KSA-FXJKQuElMnI-0001 소개 받은 유상준입니다
 - 7Jyg7IOB7KSA-FXJKQuElMnI-0003 현재는 시각 영상 디자인을 전공하고 있고
 - 7Jyg7IOB7KSA-FXJKQuElMnI-0004 관심 있는 분야는 UX디자인을 공부하고 있습니다

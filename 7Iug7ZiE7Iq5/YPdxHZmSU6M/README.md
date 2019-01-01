@@ -1,3 +1,16 @@
+### TEDxBusan: No prerequisite learning, no worry
+
+- Speaker: 신현승
+- Gender: M
+- Corpus Length: 2:44 (49 fragments)
+- Place: Busan
+- Year: 2012
+- URL: [https://www.youtube.com/watch?v=YPdxHZmSU6M](https://www.youtube.com/watch?v=YPdxHZmSU6M)
+- Transcriber: 김동규
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 7Iug7ZiE7Iq5-YPdxHZmSU6M-0001 사교육 걱정없는 세상이 올까요
 - 7Iug7ZiE7Iq5-YPdxHZmSU6M-0024 그러니까 제가 토요일 일요일까지도
 - 7Iug7ZiE7Iq5-YPdxHZmSU6M-0029 공통점이 하나 있었습니다

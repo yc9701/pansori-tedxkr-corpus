@@ -1,3 +1,16 @@
+### TEDxBusan: Passion and challenge
+
+- Speaker: 신창연
+- Gender: M
+- Corpus Length: 2:46 (88 fragments)
+- Place: Busan
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=GFYqXg0CriE](https://www.youtube.com/watch?v=GFYqXg0CriE)
+- Transcriber: Sulgi Lee
+- Reviewer: Juhyeon Kim
+
+---
+
 - 7Iug7LC97Jew-GFYqXg0CriE-0004 제가
 - 7Iug7LC97Jew-GFYqXg0CriE-0010 준비된 대통령도 아니고
 - 7Iug7LC97Jew-GFYqXg0CriE-0011 준비된 강연자도 아닌데

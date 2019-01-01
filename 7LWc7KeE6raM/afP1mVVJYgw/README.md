@@ -1,3 +1,16 @@
+### TEDxDaejeon: A spirit of sharing information and culture 'CC'
+
+- Speaker: 최진권
+- Gender: M
+- Corpus Length: 1:42 (18 fragments)
+- Place: Daejeon
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=afP1mVVJYgw](https://www.youtube.com/watch?v=afP1mVVJYgw)
+- Transcriber: Roy Younghwan Cheon
+- Reviewer:
+
+---
+
 - 7LWc7KeE6raM-afP1mVVJYgw-0001 안녕하세요
 - 7LWc7KeE6raM-afP1mVVJYgw-0002 안녕하세요 저는 렉앤플레이넷을 운영하고 있는 최진권이라고 합니다 반갑습니다
 - 7LWc7KeE6raM-afP1mVVJYgw-0012 기준은 별로 없이 섭외가 성공하면 공간을 상상합니다

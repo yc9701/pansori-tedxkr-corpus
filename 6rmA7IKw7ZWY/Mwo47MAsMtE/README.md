@@ -1,3 +1,16 @@
+### TEDxSeoul: Gibbons, long-armed apes
+
+- Speaker: 김산하
+- Gender: M
+- Corpus Length: 2:22 (73 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=Mwo47MAsMtE](https://www.youtube.com/watch?v=Mwo47MAsMtE)
+- Transcriber: 고은지
+- Reviewer: Gayun Kim
+
+---
+
 - 6rmA7IKw7ZWY-Mwo47MAsMtE-0004 저를 보고 있다는 사실도 좀
 - 6rmA7IKw7ZWY-Mwo47MAsMtE-0011 저는 비문명권에 살다 온 사람입니다
 - 6rmA7IKw7ZWY-Mwo47MAsMtE-0029 열대우림입니다

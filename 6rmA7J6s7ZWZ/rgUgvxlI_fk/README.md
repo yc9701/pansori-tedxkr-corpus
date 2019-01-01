@@ -1,3 +1,16 @@
+### TEDxSeoul: 아이티 구호현장에서 발견한 음식의 가치
+
+- Speaker: 김재학
+- Gender: M
+- Corpus Length: 0:25 (8 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=rgUgvxlI_fk](https://www.youtube.com/watch?v=rgUgvxlI_fk)
+- Transcriber: Daeun Kim
+- Reviewer: Hong Min Yoon
+
+---
+
 - 6rmA7J6s7ZWZ-rgUgvxlI_fk-0003 혹시 이게 뭔지 아시는 분 계세요
 - 6rmA7J6s7ZWZ-rgUgvxlI_fk-0008 이와 같이 모든 것이 무너졌고
 - 6rmA7J6s7ZWZ-rgUgvxlI_fk-0009 한국으로 말하자면 청와대가 그리고 종로 거리가

@@ -1,3 +1,16 @@
+### TEDxDaejeon: Winning the world with the 'DID' mindset
+
+- Speaker: 송수용
+- Gender: M
+- Corpus Length: 3:19 (66 fragments)
+- Place: Daejeon
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=2B1iXo1c1Tk](https://www.youtube.com/watch?v=2B1iXo1c1Tk)
+- Transcriber: Roy Younghwan Cheon
+- Reviewer:
+
+---
+
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0001 안녕하세요
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0002 저는 1996년 4월 1일날 사회생활을 처음 시작했습니다
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0004 어떤 기업이 좋은지 어떤 산업이 유망한지 그런 것에 대한 지식과 정보가 전혀 없었습니다
@@ -50,7 +63,7 @@
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0248 정신을 차리고 사람은 누구나 됐다 안됐다 하는거야
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0251 일을 하다가 잘못된것 자체는 문제가 아니에요
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0254 거기에 인생의 승부수가 달린 겁니다
-- 7Iah7IiY7Jqp-2B1iXo1c1Tk-0255 이상화 선수가 금메달 따기 전에 
+- 7Iah7IiY7Jqp-2B1iXo1c1Tk-0255 이상화 선수가 금메달 따기 전에
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0268 오늘 그 눈앞에 보이는것 때문에 빨리 하고 싶은 일이 있어요
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0270 총각네 야채가게 사장님을 만났어요
 - 7Iah7IiY7Jqp-2B1iXo1c1Tk-0280 가능성이 얼마나 많으냐가 중요한게 아니고

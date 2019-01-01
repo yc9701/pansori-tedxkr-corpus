@@ -1,3 +1,16 @@
+### TEDxSeoul: Appropriate technology
+
+- Speaker: 이성범
+- Gender: M
+- Corpus Length: 5:58 (87 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=znxAJsY__HM](https://www.youtube.com/watch?v=znxAJsY__HM)
+- Transcriber: TED Translators
+- Reviewer: JongEok Yang
+
+---
+
 - 7J207ISx67KU-znxAJsY__HM-0002 네 저는 오늘 가난한 사람들의 삶을 변화시키는
 - 7J207ISx67KU-znxAJsY__HM-0003 아주 독특한 방법을 여러분께 소개 해 드리려고 합니다
 - 7J207ISx67KU-znxAJsY__HM-0004 적정기술과 사회적 기업 이런 활동을 통해서

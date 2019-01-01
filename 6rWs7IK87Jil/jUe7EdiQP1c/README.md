@@ -1,3 +1,16 @@
+### TEDxDaedeok: Dreaming a way to future aerial vehicle from unmanned aircraft
+
+- Speaker: 구삼옥
+- Gender: M
+- Corpus Length: 7:34 (121 fragments)
+- Place: Daedeok
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=jUe7EdiQP1c](https://www.youtube.com/watch?v=jUe7EdiQP1c)
+- Transcriber: TED Translators
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 6rWs7IK87Jil-jUe7EdiQP1c-0001 안녕하세요 반갑습니다
 - 6rWs7IK87Jil-jUe7EdiQP1c-0003 저는 한국 항공우주연구원에서
 - 6rWs7IK87Jil-jUe7EdiQP1c-0004 항공기 설계 무인기 개발 관련 일을 하고 있습니다
@@ -51,7 +64,7 @@
 - 6rWs7IK87Jil-jUe7EdiQP1c-0114 지상관측용으로 아주 평화적인 용도로 시작했습니다
 - 6rWs7IK87Jil-jUe7EdiQP1c-0123 초등학생들한테 이 영상을 보여주면
 - 6rWs7IK87Jil-jUe7EdiQP1c-0124 재미있는 영화보는 것처럼 굉장히 좋아합니다
-- 6rWs7IK87Jil-jUe7EdiQP1c-0131 그래서 공부 열심히 해야되는 거야 하고 마치는데요 
+- 6rWs7IK87Jil-jUe7EdiQP1c-0131 그래서 공부 열심히 해야되는 거야 하고 마치는데요
 - 6rWs7IK87Jil-jUe7EdiQP1c-0132 바로 그런 이유 때문에
 - 6rWs7IK87Jil-jUe7EdiQP1c-0133 우리나라에서 이렇게 무인항공기에 대해서 연구를 하고 있고
 - 6rWs7IK87Jil-jUe7EdiQP1c-0135 현재 군에서 열심히 관측 하늘에서 관측하는 연구를 하고 있습니다

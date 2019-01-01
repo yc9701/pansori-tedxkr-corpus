@@ -1,3 +1,16 @@
+### TEDxBusan: Making a village worth living in
+
+- Speaker: 김혜정
+- Gender: F
+- Corpus Length: 9:14 (191 fragments)
+- Place: Busan
+- Year: 2012
+- URL: [https://www.youtube.com/watch?v=grgRnDg-o94](https://www.youtube.com/watch?v=grgRnDg-o94)
+- Transcriber: 김동규
+- Reviewer: Juhyeon Kim
+
+---
+
 - 6rmA7Zic7KCV-grgRnDg-o94-0001 저는 반송이라는 마을에 살고 있는데요
 - 6rmA7Zic7KCV-grgRnDg-o94-0003 거창한 이야기가 아니라
 - 6rmA7Zic7KCV-grgRnDg-o94-0005 여러분들 다들 마을에 살고 계시죠
@@ -72,7 +85,7 @@
 - 6rmA7Zic7KCV-grgRnDg-o94-0120 수다 떨면서 자기 이야기 합니다
 - 6rmA7Zic7KCV-grgRnDg-o94-0121 자기 이야기 하고 아이 이야기 하고 남편 이야기 합니다
 - 6rmA7Zic7KCV-grgRnDg-o94-0123 그러다가 나라 이야기 합니다 세상 이야기 합니다
-- 6rmA7Zic7KCV-grgRnDg-o94-0127 이 6천부를 누가 돌려주지 않습니다 
+- 6rmA7Zic7KCV-grgRnDg-o94-0127 이 6천부를 누가 돌려주지 않습니다
 - 6rmA7Zic7KCV-grgRnDg-o94-0130 동네 사람들한테 전해 드립니다
 - 6rmA7Zic7KCV-grgRnDg-o94-0131 아 우리 마을에 이런 일이 있었습니다
 - 6rmA7Zic7KCV-grgRnDg-o94-0132 우리마을에 이런 사람이 살고 있습니다
@@ -166,13 +179,13 @@
 - 6rmA7Zic7KCV-grgRnDg-o94-0325 도시락을 만드는 일에 관심 있는 아줌마들이 모여서 그냥
 - 6rmA7Zic7KCV-grgRnDg-o94-0326 도시락을 만들어서 판매를 하는데
 - 6rmA7Zic7KCV-grgRnDg-o94-0330 카페는 돈이 안되지만
-- 6rmA7Zic7KCV-grgRnDg-o94-0332 또 다른 마을에 대한 희망을 품고 
+- 6rmA7Zic7KCV-grgRnDg-o94-0332 또 다른 마을에 대한 희망을 품고
 - 6rmA7Zic7KCV-grgRnDg-o94-0334 여러분들 꿈꾸고 계시죠
 - 6rmA7Zic7KCV-grgRnDg-o94-0337 여러분들에게 꿈이 필요하시다
 - 6rmA7Zic7KCV-grgRnDg-o94-0340 그런데 그 마을을 둘러볼 때
-- 6rmA7Zic7KCV-grgRnDg-o94-0341 정말 사랑하는 연인을 대하듯이 
+- 6rmA7Zic7KCV-grgRnDg-o94-0341 정말 사랑하는 연인을 대하듯이
 - 6rmA7Zic7KCV-grgRnDg-o94-0342 정말 사랑하는 마음으로
-- 6rmA7Zic7KCV-grgRnDg-o94-0345 사람들이 보이고 
+- 6rmA7Zic7KCV-grgRnDg-o94-0345 사람들이 보이고
 - 6rmA7Zic7KCV-grgRnDg-o94-0346 여러분들이 하시고 싶은 일들이
 - 6rmA7Zic7KCV-grgRnDg-o94-0347 보이실 겁니다
 - 6rmA7Zic7KCV-grgRnDg-o94-0349 이 친구가 지금 우리가 마을에서

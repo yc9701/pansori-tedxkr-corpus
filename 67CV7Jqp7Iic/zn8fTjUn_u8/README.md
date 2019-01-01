@@ -1,3 +1,16 @@
+### TEDxDaejeon: Korean traditional hawk hunting
+
+- Speaker: 박용순
+- Gender: M
+- Corpus Length: 1:09 (21 fragments)
+- Place: Daejeon
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=zn8fTjUn_u8](https://www.youtube.com/watch?v=zn8fTjUn_u8)
+- Transcriber:Roy Younghwan Cheon
+- Reviewer:
+
+---
+
 - 67CV7Jqp7Iic-zn8fTjUn_u8-0001 반갑습니다
 - 67CV7Jqp7Iic-zn8fTjUn_u8-0007 깼습니까  
 - 67CV7Jqp7Iic-zn8fTjUn_u8-0017 병이 생기잖아요

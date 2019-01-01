@@ -1,3 +1,16 @@
+### TEDxBusan: Are science and liberal arts equal?
+
+- Speaker: 김상욱
+- Gender:  M
+- Corpus Length: 2:36 (67 fragments)
+- Place: Busan
+- Year: 2013
+- URL: [https://www.youtube.com/watch?v=ccrZhrcWPLU](https://www.youtube.com/watch?v=ccrZhrcWPLU)
+- Transcriber: Sulgi Lee
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 6rmA7IOB7Jqx-ccrZhrcWPLU-0012 이 소설을 쓴사람이 누구죠
 - 6rmA7IOB7Jqx-ccrZhrcWPLU-0021 열역학 제 2법칙이 뭔지 혹시 아시나요
 - 6rmA7IOB7Jqx-ccrZhrcWPLU-0023 열역학 제2 법칙이 뭔지를

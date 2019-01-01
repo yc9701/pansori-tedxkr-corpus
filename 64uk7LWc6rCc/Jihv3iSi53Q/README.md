@@ -1,3 +1,16 @@
+### TEDxSeoul: Perspective, music and life
+
+- Speaker: 다이나믹듀오
+- Gender: M
+- Corpus Length: 2:51 (48 fragments)
+- Place: Seoul
+- Year: 2012
+- URL: [https://www.youtube.com/watch?v=Jihv3iSi53Q](https://www.youtube.com/watch?v=Jihv3iSi53Q)
+- Transcriber:
+- Reviewer:
+
+---
+
 - 64uk7LWc6rCc-Jihv3iSi53Q-0000 안녕하세요
 - 64uk7LWc6rCc-Jihv3iSi53Q-0016 저희가 어떤 주제로 여러분께 이야기를 해드릴까 굉장히 고민을 하다가
 - 64uk7LWc6rCc-Jihv3iSi53Q-0020 그때 그때마다 서울에 관련된 노래들이 앨범마다 다 있고

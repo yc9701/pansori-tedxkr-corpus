@@ -1,3 +1,16 @@
+### TEDxBusan: Which do you love, pictures or camera?
+
+- Speaker: 박희진
+- Gender: M
+- Corpus Length: 2:42 (38 fragments)
+- Place: Busan
+- Year: 2014
+- URL: [https://www.youtube.com/watch?v=a7zuPg5if14](https://www.youtube.com/watch?v=a7zuPg5if14)
+- Transcriber: 김동규
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 67CV7Z2s7KeE-a7zuPg5if14-0002 지금도 여러분들은 카메라를 가지고 계시고 사진을 찍고 계시죠
 - 67CV7Z2s7KeE-a7zuPg5if14-0003 그렇지 않습니까
 - 67CV7Z2s7KeE-a7zuPg5if14-0007 공식적으로 1839년 8월 19일 입니다

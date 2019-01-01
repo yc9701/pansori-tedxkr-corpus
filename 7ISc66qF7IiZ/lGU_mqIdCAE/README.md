@@ -1,3 +1,16 @@
+### TEDxSeoul: Jeju Olleh
+
+- Speaker: 서명숙
+- Gender: F
+- Corpus Length: 9:16 (135 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=lGU_mqIdCAE](https://www.youtube.com/watch?v=lGU_mqIdCAE)
+- Transcriber: TED Translators
+- Reviewer: Sunduk Wang
+
+---
+
 - 7ISc66qF7IiZ-lGU_mqIdCAE-0002 안녕하세요 이렇게 뜨겁게 환영해 주셔서 감사합니다
 - 7ISc66qF7IiZ-lGU_mqIdCAE-0010 취미로 걷기 시작했다가 급기야 생전 해보지도 않은 길내는 일에 종사하는
 - 7ISc66qF7IiZ-lGU_mqIdCAE-0013 저희 어머니는 제가 직장 그만둘때도 미친년이라고 한 번 하셨고

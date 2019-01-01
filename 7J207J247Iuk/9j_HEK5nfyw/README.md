@@ -1,3 +1,16 @@
+### TEDxBusan: Statistics 3.0
+
+- Speaker: 이인실
+- Gender: F
+- Corpus Length: 3:42 (94 fragments)
+- Place: Busan
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=9j_HEK5nfyw](https://www.youtube.com/watch?v=9j_HEK5nfyw)
+- Transcriber:
+- Reviewer:
+
+---
+
 - 7J207J247Iuk-9j_HEK5nfyw-0000 안녕하세요 여러분 반갑습니다
 - 7J207J247Iuk-9j_HEK5nfyw-0002 통계만 해도 머리가 복잡하고 딱딱해 보이는데
 - 7J207J247Iuk-9j_HEK5nfyw-0005 통계를 통해서
@@ -82,7 +95,7 @@
 - 7J207J247Iuk-9j_HEK5nfyw-0370 라는 것도 볼 생각입니다
 - 7J207J247Iuk-9j_HEK5nfyw-0378 은연중에 나도 모르게 그 숫자에 따라서
 - 7J207J247Iuk-9j_HEK5nfyw-0379 생각과 행동이 바뀌게 됩니다
-- 7J207J247Iuk-9j_HEK5nfyw-0387 제 목소리도 낭낭하잖아요 
+- 7J207J247Iuk-9j_HEK5nfyw-0387 제 목소리도 낭낭하잖아요
 - 7J207J247Iuk-9j_HEK5nfyw-0389 버스를 타더라도 맨 앞자리에 앉아서
 - 7J207J247Iuk-9j_HEK5nfyw-0390 앞만 보며 추월과 속도의 불안에 떨지 말고
 - 7J207J247Iuk-9j_HEK5nfyw-0391 창 밖의 풍경을 보시라

@@ -1,3 +1,16 @@
+### TEDxDaedeok: Dynamic biology
+
+- Speaker: 이선희
+- Gender: F
+- Corpus Length: 4:44 (68 fragments)
+- Place: Daedeok
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=vpDjbUl1nYQ](https://www.youtube.com/watch?v=vpDjbUl1nYQ)
+- Transcriber: TED Translators
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 7J207ISg7ZWY-vpDjbUl1nYQ-0005 이 주제를 선택하게 되었습니다
 - 7J207ISg7ZWY-vpDjbUl1nYQ-0009 특히 저희 아버지께서는 도대체 학교를 몇 년째 다닐거냐고
 - 7J207ISg7ZWY-vpDjbUl1nYQ-0014 정직원이기 때문에 안정감이 있었지만 늘 제가 하고자 하는

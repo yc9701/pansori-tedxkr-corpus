@@ -1,3 +1,16 @@
+### TEDxSeoul: Starting from where I am
+
+- Speaker: 황두진
+- Gender: F
+- Corpus Length: 6:41 (117 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=SP67ty4SXQA](https://www.youtube.com/watch?v=SP67ty4SXQA)
+- Transcriber:
+- Reviewer:
+
+---
+
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0001 저는 오마이뉴스가 창간되던 2000년
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0003 내년이면 10년이 되는데요
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0006 동네하면 어떤 느낌이 드십니까
@@ -58,7 +71,7 @@
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0135 여기 걸려있는 저 그림은
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0136 우리나라의 근대화가인 원계홍씨의 그림입니다
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0140 여러 가지 다양한 것들이 섞여 있습니다
-- 7Zmp65GQ7KeE-SP67ty4SXQA-0143 홈 오토메이션 
+- 7Zmp65GQ7KeE-SP67ty4SXQA-0143 홈 오토메이션
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0146 절대로 조선 시대의 사람을 위한 집이 아닙니다
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0149 조선시대의 자기 조선시대의 가구 현대작가의 작품
 - 7Zmp65GQ7KeE-SP67ty4SXQA-0155 불편한 아궁이에 부뚜막 있는 그런 부엌아니죠

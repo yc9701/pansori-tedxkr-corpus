@@ -1,3 +1,16 @@
+### TEDxBusan: Social venture is blue ocean
+
+- Speaker: 김정현
+- Gender: M
+- Corpus Length: 2:56 (60 fragments)
+- Place: Busan
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=MJ0_NG4dsCY](https://www.youtube.com/watch?v=MJ0_NG4dsCY)
+- Transcriber:
+- Reviewer:
+
+---
+
 - 6rmA7KCV7ZiE-MJ0_NG4dsCY-0005 사회적 기업에 대해서 사람들한테 얘기를 해보면
 - 6rmA7KCV7ZiE-MJ0_NG4dsCY-0010 그런 멋진 일이거든요
 - 6rmA7KCV7ZiE-MJ0_NG4dsCY-0018 남들한테 도움을 받아야 되고

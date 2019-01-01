@@ -1,3 +1,16 @@
+### TEDxBusan: Communication is recovery
+
+- Speaker: 박임순
+- Gender: F
+- Corpus Length: 6:24 (161 fragments)
+- Place: Busan
+- Year: 2012
+- URL: [https://www.youtube.com/watch?v=ZBNO2Drz36c](https://www.youtube.com/watch?v=ZBNO2Drz36c)
+- Transcriber: Dasom Im
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 67CV7J6E7Iic-ZBNO2Drz36c-0002 축복이라고 생각하십니까
 - 67CV7J6E7Iic-ZBNO2Drz36c-0003 원수라고 생각하십니까
 - 67CV7J6E7Iic-ZBNO2Drz36c-0004 여러분의 가족을

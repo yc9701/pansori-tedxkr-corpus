@@ -1,3 +1,16 @@
+### TEDxSeoul: Be an artist, right now!
+
+- Speaker: 김영하
+- Gender: M
+- Corpus Length: 5:47 (131 fragments)
+- Place: Seoul
+- Year: 2013
+- URL: [https://www.youtube.com/watch?v=zRvDWVfib2c](https://www.youtube.com/watch?v=zRvDWVfib2c)
+- Transcriber: K Bang
+- Reviewer: Claire Han
+
+---
+
 - 6rmA7JiB7ZWY-zRvDWVfib2c-0001 오늘 제가 얘기 할 주제는요
 - 6rmA7JiB7ZWY-zRvDWVfib2c-0002 예술가가 되자 지금 당장 입니다
 - 6rmA7JiB7ZWY-zRvDWVfib2c-0003 이런 얘기를 꺼내면 이제 보통 분들이 다 긴장하고

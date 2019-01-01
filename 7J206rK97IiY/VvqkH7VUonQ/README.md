@@ -1,3 +1,16 @@
+### TEDxDaejeon: Finding new energy to overcome resource limits
+
+- Speaker: 이경수
+- Gender: M
+- Corpus Length: 4:43 (53 fragments)
+- Place: Daejeon
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=VvqkH7VUonQ](https://www.youtube.com/watch?v=VvqkH7VUonQ)
+- Transcriber: Roy Younghwan Cheon
+- Reviewer:
+
+---
+
 - 7J206rK97IiY-VvqkH7VUonQ-0001 아 오늘은 21세기에 우리가 맞이하고 있는 에너지 위기와
 - 7J206rK97IiY-VvqkH7VUonQ-0003 지금 우리 21세기에 사는 우리 인류는 에너지 위기
 - 7J206rK97IiY-VvqkH7VUonQ-0005 또 하나는 킬리만자로의 눈 기억하세요

@@ -1,3 +1,16 @@
+### TEDxDaedeok: Predict disease with face
+
+- Speaker: 김종열
+- Gender: M
+- Corpus Length: 4:08 (72 fragments)
+- Place: M
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=RMUVo-AZfQM](https://www.youtube.com/watch?v=RMUVo-AZfQM)
+- Transcriber: TED Translators
+- Reviewer: Bella Borahm Hur Vinha
+
+---
+
 - 6rmA7KKF7Je0-RMUVo-AZfQM-0001 안녕하십니까
 - 6rmA7KKF7Je0-RMUVo-AZfQM-0003 저는 한국한의학연구원에서
 - 6rmA7KKF7Je0-RMUVo-AZfQM-0004 사상체질의학을 과학화하는 연구를 하고 있는 김종열입니다

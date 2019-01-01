@@ -1,3 +1,16 @@
+### TEDxDaejeon: Beating disabilities to pioneer grassroots journalism
+
+- Speaker: 조주현
+- Gender: M
+- Corpus Length: 3:56 (37 fragments)
+- Place: Daejeon
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=Mcs_1DV6Sgc](https://www.youtube.com/watch?v=Mcs_1DV6Sgc)
+- Transcriber: Roy Younghwan Cheon
+- Reviewer:
+
+---
+
 - 7KGw7KO87ZiE-Mcs_1DV6Sgc-0001 박수가 굉장히 부담스럽습니다 여기와서 사실 좀 기가 많이 죽었습니다
 - 7KGw7KO87ZiE-Mcs_1DV6Sgc-0008 저게 여덟살때의 사진입니다 제가 이 사진을 보여드리는 것은
 - 7KGw7KO87ZiE-Mcs_1DV6Sgc-0009 바로 왼쪽에 저희 어머님이시고 그 뒤에 여자분이 기숙사 사감이십니다

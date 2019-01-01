@@ -1,3 +1,16 @@
+### TEDxBusan: Redefinition of soil and its possibilities
+
+- Speaker: 신근식
+- Gender: M
+- Corpus Length: 3:51 (76 fragments)
+- Place: Busan
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=8-dSwR5iUyY](https://www.youtube.com/watch?v=8-dSwR5iUyY)
+- Transcriber: Shinmyung Kim
+- Reviewer: Juhyeon Kim
+
+---
+
 - 7Iug6re87Iud-8-dSwR5iUyY-0002 그런데 더 놀라운 사실은
 - 7Iug6re87Iud-8-dSwR5iUyY-0006 하나하나 보여드리도록 하겠습니다
 - 7Iug6re87Iud-8-dSwR5iUyY-0011 흙으로 집을 짓고 살고 있거든요

@@ -1,3 +1,16 @@
+### TEDxSeoul: Statecraft, the art of conducting public affairs
+
+- Speaker: 윤여준
+- Gender: M
+- Corpus Length: 1:59 ( fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=LnGadr1MDs8](https://www.youtube.com/watch?v=LnGadr1MDs8)
+- Transcriber: Jonghyeok Lee
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 7Jyk7Jes7KSA-LnGadr1MDs8-0001 안녕하세요 윤여준입니다
 - 7Jyk7Jes7KSA-LnGadr1MDs8-0002 영화 마이너리티 리포트는
 - 7Jyk7Jes7KSA-LnGadr1MDs8-0004 윤여준의 마이너리티 리포트는

@@ -1,3 +1,16 @@
+### TEDxBusan: Misconception about evaluations
+
+- Speaker: 유정식
+- Gender: M
+- Corpus Length: 6:43 (158 fragments)
+- Place: Busan
+- Year: 2012
+- URL: [https://www.youtube.com/watch?v=r7hLHMYQvp4](https://www.youtube.com/watch?v=r7hLHMYQvp4)
+- Transcriber: Sulgi Lee
+- Reviewer: Juhyeon Kim
+
+---
+
 - 7Jyg7KCV7Iud-r7hLHMYQvp4-0001 저는 컨설팅을 하는 사람입니다
 - 7Jyg7KCV7Iud-r7hLHMYQvp4-0002 컨설팅이라고 하니까 많은 분들이
 - 7Jyg7KCV7Iud-r7hLHMYQvp4-0003 부동산을 연상하시던데요

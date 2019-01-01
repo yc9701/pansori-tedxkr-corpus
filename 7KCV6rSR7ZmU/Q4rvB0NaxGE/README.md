@@ -1,3 +1,16 @@
+### TEDxDaedeok: Why Analytcal Science?
+
+- Speaker: 정광화
+- Gender: F
+- Corpus Length: 3:56 (58 fragments)
+- Place: Daedeok
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=Q4rvB0NaxGE](https://www.youtube.com/watch?v=Q4rvB0NaxGE)
+- Transcriber: TED Translators
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 7KCV6rSR7ZmU-Q4rvB0NaxGE-0003 저는 오늘 왜 분석과학기술인가 라는 제목을 가지고
 - 7KCV6rSR7ZmU-Q4rvB0NaxGE-0004 여러분들께 분석과학기술이 무엇이고
 - 7KCV6rSR7ZmU-Q4rvB0NaxGE-0005 분석과학기술이 왜 중요한지에 대해 말씀드리고자 합니다

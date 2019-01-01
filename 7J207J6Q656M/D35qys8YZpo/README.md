@@ -1,3 +1,16 @@
+### TEDxDaedeok: Dreaming a way to future aerial vehicle from unmanned aircraft
+
+- Speaker: 구삼옥
+- Gender: M
+- Corpus Length: 7:34 (121 fragments)
+- Place: Daedeok
+- Year: 2011
+- URL: [https://www.youtube.com/watch?v=D35qys8YZpo](https://www.youtube.com/watch?v=D35qys8YZpo)
+- Transcriber: TED Translators
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 7J207J6Q656M-D35qys8YZpo-0001 황두진 선생님의 한옥이 돌아왔다 라는 책의 열혈 팬이며
 - 7J207J6Q656M-D35qys8YZpo-0004 어 마지막이니까 여유있게 하겠습니다 심장이 너무 뛰어서요
 - 7J207J6Q656M-D35qys8YZpo-0006 아까 잠깐 쉬는 시간에 여기 트위터로 바로바로 올라오는 글 중에 하나를 읽었습니다

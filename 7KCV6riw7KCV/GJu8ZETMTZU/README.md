@@ -1,3 +1,16 @@
+### TEDxDaedeok: ITER, towards the dream of a fusion energy era
+
+- Speaker: 정기정
+- Gender: M
+- Corpus Length: 3:35 (45 fragments)
+- Place: Daedeok
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=GJu8ZETMTZU](https://www.youtube.com/watch?v=GJu8ZETMTZU)
+- Transcriber: TED Translators
+- Reviewer: Jeong-Lan Kinser
+
+---
+
 - 7KCV6riw7KCV-GJu8ZETMTZU-0001 안녕하십니까 정기정입니다
 - 7KCV6riw7KCV-GJu8ZETMTZU-0002 저는 현재 국가 핵융합 연구소에서
 - 7KCV6riw7KCV-GJu8ZETMTZU-0010 그래서 개인적으로는 연구소에 있었다는 것도 큰 보람으로 생각하고 있고

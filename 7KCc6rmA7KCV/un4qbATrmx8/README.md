@@ -1,3 +1,16 @@
+### TEDxSeoul: More humane medical experience
+
+- Speaker: 김승범, 정혜진
+- Gender: M, F
+- Corpus Length: 4:36 (80 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=un4qbATrmx8](https://www.youtube.com/watch?v=un4qbATrmx8)
+- Transcriber:
+- Reviewer:
+
+---
+
 - 7KCc6rmA7KCV-un4qbATrmx8-0001 저희는 방금 소개받은 것 처럼 의사구요 여기가 저희 진료실입니다
 - 7KCc6rmA7KCV-un4qbATrmx8-0003 저는 이렇게 만화책을 보고 있었고
 - 7KCc6rmA7KCV-un4qbATrmx8-0025 전시를 하기도 합니다

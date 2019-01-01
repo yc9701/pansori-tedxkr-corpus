@@ -1,3 +1,16 @@
+### TEDxSeoul: Sustainable DoReMi
+
+- Speaker: 고건혁
+- Gender: M
+- Corpus Length: 3:10 (78 fragments)
+- Place: Seoul
+- Year: 2010
+- URL: [https://www.youtube.com/watch?v=aWPB0xeM8UA](https://www.youtube.com/watch?v=aWPB0xeM8UA)
+- Transcriber: Gisu Bang
+- Reviewer: Lee Che Binn
+
+---
+
 - 6rOg6rG07ZiB-aWPB0xeM8UA-0002 네 일단 제 소개부터 하도록 하겠습니다
 - 6rOg6rG07ZiB-aWPB0xeM8UA-0012 돼지 아니면 곰
 - 6rOg6rG07ZiB-aWPB0xeM8UA-0026 이 친구는 그래도 아실 것 같습니다
