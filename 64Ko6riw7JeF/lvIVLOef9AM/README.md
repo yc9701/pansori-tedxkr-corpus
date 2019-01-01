@@ -2,6 +2,7 @@
 
 - Speaker: Nam Ki-up
 - Gender: M
+- Corpus Length: 6:43 (155 fragments)
 - Place: Busan
 - Year: 2012
 - URL: [https://www.youtube.com/watch?v=lvIVLOef9AM](https://www.youtube.com/watch?v=lvIVLOef9AM)
